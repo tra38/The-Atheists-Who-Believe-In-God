@@ -1,5 +1,5 @@
 # The-Atheists-Who-Believe-In-God
-In the summer of 2007, 21% of self-proclaimed atheists claim to also bel in God.
+In the summer of 2007, 21% of self-proclaimed atheists claim to also believe in God.
 
 ## Pew Forum's Disclaimer
 While the **code** is licensed under the MIT, the dataset itself is under a far more restrictive license, hence the following disclaimer. 
