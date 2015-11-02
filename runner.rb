@@ -3,7 +3,7 @@ require_relative 'names.rb'
 
 #Default seed is used to generate the same data with each individual "run".
 #Change the seed if you want a new 'novel'.
-# FactoryHelper::Config.seed = 42
+srand 42
 
 data = SmarterCSV.process('data/atheist_data.csv')
 
@@ -51,7 +51,8 @@ def generate_character(args)
 	p "Divine Healing: #{divine_healing}"
 	p religion_in_politics
 	p morality_in_politics
-	p clear_ethical_standards
+	p "Are there clear ethical standards? #{clear_ethical_standards}"
+	p "Is evolution real? #{evolution}"
 end
 
 def determine_name(gender_data)
