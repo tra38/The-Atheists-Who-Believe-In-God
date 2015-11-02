@@ -33,8 +33,10 @@ def generate_character(args)
 	morality_in_politics = evaluate_morality_in_politics(args[:"q5a"])
 	clear_ethical_standards = evaluate_q39_data(args[:"q10b"])
 	evolution = evaluate_q39_data(args[:"q10c"])
+	hispanic = evaluate_hispanic_data(args[:HISP])
 
 	p name
+	p "Hispanic?: #{hispanic}"
 	p race
 	p moral_reasoning
 	p nature_of_god
@@ -55,9 +57,9 @@ end
 def determine_name(gender_data)
 	case gender_data
 	when 1
-		"#{male_name}"
+		"#{male_name} #{last_name}"
 	when 2
-		"#{female_name}"
+		"#{female_name} #{last_name}"
 	end
 end
 
@@ -70,9 +72,9 @@ def determine_race(race_data) #What is your race?
 	when 3
 		race = "Asian"
 	when 4
-		race = "mixed race"
-	when 5
-		race = nil
+		race = "mixed race individual"
+	when 5 #don't know, refuse to answer
+		race = "American"
 	end
 end
 
@@ -260,6 +262,17 @@ def evaluate_morality_in_politics(data)
 		:government_should_promote_morality
 	when data == 2
 		:government_is_too_involved
+	else
+		:refuse_to_say
+	end
+end
+
+def evaluate_hispanic_data(hispanic_data)
+	case hispanic_data
+	when 1
+		:yes
+	when 2
+		:no
 	else
 		:refuse_to_say
 	end
