@@ -51,6 +51,8 @@ end
 def determine_afterlife(args)
 	heaven = determine_heaven(args[:heaven])
 	hell = determine_hell(args[:hell])
+	life_after_death = determine_if_there_is_life_after_death(args[:life_after_death])
+	args[:afterlife]
 	if heaven == :heaven_is_real && hell == :hell_is_real
 		:hell_and_heaven
 		# "Good people will be sent to Heaven while bad people will be sent to Hell."
@@ -66,8 +68,10 @@ def determine_afterlife(args)
 	elsif hell == :hell_is_real
 		:only_hell
 		# "Bad people will be sent to Hell"
-	else
+	elsif life_after_death == :real
 		:no_conventional_afterlife
+	else
+		:no_afterlife
 	end
 end
 
@@ -91,6 +95,17 @@ def determine_hell(hell_data)
 		:hell_is_real
 	when 2
 		:hell_is_a_lie
+	else
+		:unknown
+	end
+end
+
+def determine_if_there_is_life_after_death(life_after_death_data)
+	case life_after_death_data
+	when 1
+		:real
+	when 2
+		:fake
 	else
 		:unknown
 	end

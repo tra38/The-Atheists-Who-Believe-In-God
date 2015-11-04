@@ -3,7 +3,7 @@ class Speech
 	def initialize(args)
 		@args = args
 		@text = []
-		@text << "#{args[:name]} (#{args[:race]}), entered a church, ready to deliver a speech to religious people."
+		@text << "#{args[:name]} (#{args[:race]}) entered a church, ready to deliver a speech to religious people."
 		@text << why_is_the_character_delivering_the_speech
 		@text << what_is_god
 		@text << nature_of_god if args[:nature_of_god]
@@ -93,6 +93,8 @@ class Speech
 			"#{args[:name]} explained how abandoning religion and truly believing in the #{diety_name} would allow them to go to Heaven."
 		when :only_hell
 			"#{args[:name]} explained how evil people are doomed to enter Hell for going against the commands of #{diety_name}."
+		when :no_afterlife
+			"#{args[:name]} laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion."
 		when :no_conventional_afterlife
 			"#{args[:name]} attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology."
 		end
