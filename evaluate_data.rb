@@ -241,3 +241,24 @@ def evaluate_hispanic_data(hispanic_data)
 		:refuse_to_say
 	end
 end
+
+def determine_education(education_data)
+	case education_data
+	when 1
+		:"person who was unable to attend high school"
+	when 2
+		:"high school dropout"
+	when 3
+		:"high school graduate"
+	when 4
+		:"blue-collar laborer"
+	when 5
+		:"college dropout"
+	when 6
+		:"college graduate"
+	when 7
+		:academic
+	when 9
+		:person
+	end
+end

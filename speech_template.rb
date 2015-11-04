@@ -3,14 +3,15 @@ class Speech
 	def initialize(args)
 		@args = args
 		@text = []
-		@text << "#{args[:name]} (#{args[:race]}) entered a church, ready to deliver a speech to religious people."
+		@text << "#{args[:name]} (#{args[:race]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
 		@text << why_is_the_character_delivering_the_speech
-		@text << what_is_god
+		@text << "\n\n" + what_is_god
 		@text << nature_of_god if args[:nature_of_god]
 		@text << view_of_bible if args[:view_of_bible]
 		@text << life_after_death
 		@text << presence_of_miracles if args[:miracles]
 		@text << clear_ethical_standards if args[:clear_ethical_standards]
+		@text << "\n\n#{room_reaction}"
 		@text = @text.join(" ")
 	end
 
@@ -108,6 +109,16 @@ class Speech
 			"#{args[:name]} denounced the concept of miracles in the present day, claiming that #{diety_name} would never wish to break scientific laws."
 		end
 	end
+
+	def room_reaction
+		["The room remained silent, as the theists try to take into account what they have just heard.","The theists started to seriously consider #{args[:name]}'s message.","The theists started laughing at #{args[:name]}'s flawed theology.","The theists giggled, but still tried to pay their respects to the speaker.","The theists took notes."].sample
+	end
+
+	# def angels_and_demons
+	# 	case args[:angels_and_demons]
+	# 	when :yes
+	# 		"The room remained silent, with the theists justexcept for a small rasping noise. #{args[:name]} knew "
+	# 	end
 
 	def clear_ethical_standards
 		case args[:clear_ethical_standards]

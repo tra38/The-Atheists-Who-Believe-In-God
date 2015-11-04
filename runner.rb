@@ -21,6 +21,7 @@ def generate_character(args)
 	character_profile[:personal_pronoun] = determine_pronoun(args[:"sex"])
 	character_profile[:fake_faith] = [:simulationism,:pantheism,:karma,:alien].sample
 	character_profile[:race] = determine_race(args[:race])
+	character_profile[:education] = determine_education(args[:educ])
 	character_profile[:hispanic] = evaluate_hispanic_data(args[:HISP])
 	character_profile[:moral_reasoning] = determine_moral_reasoning(args[:"q10d"])
 	character_profile[:nature_of_god] = determine_nature_of_god(args[:"q32"])
