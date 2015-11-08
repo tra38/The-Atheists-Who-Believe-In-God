@@ -153,7 +153,7 @@ class Speech
 		when args[:prayer] == :sometimes
 			"#{args[:name]} thought about praying to #{diety_name}, but decided that #{args[:personal_pronoun]} #{args[:personal_pronoun]} can handle this situation on #{args[:possessive_pronoun]} own and id not need to pray just yet."
 		when args[:mediation] == :sometimes
-			"#{args[:name]} thought about medidate, but decided that #{args[:personal_pronoun]} can handle this situation on #{args[:possessive_pronoun]} own and did not need to medidate just yet."
+			"#{args[:name]} thought about medidating, but decided that #{args[:personal_pronoun]} can handle this situation on #{args[:possessive_pronoun]} own and did not need to medidate just yet."
 		else
 			"#{args[:name]} slowly breathed in and out to calm #{args[:possessive_pronoun]} nerves."
 		end
