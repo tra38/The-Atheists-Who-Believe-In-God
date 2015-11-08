@@ -49,9 +49,9 @@ end
 def determine_nature_of_god(god_data) #How do you view God?
 	case god_data
 	when 1
-		"a personal, physical being"
+		"a personal, physical being that humans can relate to and communicate with"
 	when 2
-		"an impersonal force"
+		"an impersonal force that can only be understood as a part of nature, similar to that of gravity"
 	else
 		nil
 	end
