@@ -271,3 +271,16 @@ def determine_education(education_data)
 		:person
 	end
 end
+
+def determine_wealth(wealth_data)
+	case
+	when (wealth_data <= 4) 
+		"poor"
+	when (wealth_data <= 6)
+		"middle-class"
+	when (wealth_data <= 9)
+		"wealthy"
+	else
+		""
+	end
+end
