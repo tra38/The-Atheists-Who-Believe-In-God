@@ -7,6 +7,15 @@ def determine_pronoun(sex_data)
 	end
 end
 
+def determine_possessive_pronoun(sex_data)
+	case sex_data
+	when 1
+		"his"
+	when 2
+		"her"
+	end
+end
+
 def determine_race(race_data) #What is your race?
 	case race_data
 	when 1

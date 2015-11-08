@@ -5,13 +5,15 @@ class Speech
 		@text = []
 		@text << "#{args[:name]} (#{args[:race]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
 		@text << why_is_the_character_delivering_the_speech
+		@text << experience_in_talking_to_theists
 		@text << "\n\n" + what_is_god
 		@text << nature_of_god if args[:nature_of_god]
 		@text << view_of_bible if args[:view_of_bible]
 		@text << life_after_death
 		@text << presence_of_miracles if args[:miracles]
 		@text << clear_ethical_standards if args[:clear_ethical_standards]
-		@text << "\n\n#{room_reaction}"
+		@text << "\n\n#{room_reaction}\n\n"
+		# @text << angels_and_demons
 		@text = @text.join(" ")
 	end
 
@@ -20,7 +22,7 @@ class Speech
 		when args[:religion_causes_problems] == :yes
 			"#{args[:personal_pronoun].capitalize} saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism."
 		when args[:religion_in_politics] == :religion_should_keep_out
-			"#{args[:personal_pronoun].capitalize} saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the seperation of church and state cannot stand!"
+			"#{args[:personal_pronoun].capitalize} saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand!"
 		else
 			"#{args[:personal_pronoun].capitalize} believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism."
 		end
@@ -128,5 +130,33 @@ class Speech
 			"#{args[:name]} laughed at the idea of 'clear ethical standards'; #{diety_name} supports ethical relativism in all affairs."
 		end
 	end 
+
+	def experience_in_talking_to_theists
+		case
+		when (args[:preaching_atheism] == :yes) 
+			"#{args[:name]} had extensive experience in preaching #{args[:possessive_pronoun]} views to theists. #{args[:personal_pronoun].capitalize} was not afraid."
+		when (args[:preaching_atheism] == :sometimes)
+			"#{args[:name]} sometimes preached #{args[:possessive_pronoun]} views to theists, but still felt afraid. #{calm_nerves}"
+		when (args[:preaching_atheism] == :never)
+			"#{args[:name]} had never preached #{args[:possessive_pronoun]} views to theists before, and freaked out. #{calm_nerves}"
+		else
+			"#{calm_nerves}"
+		end
+	end
+
+	def calm_nerves
+		case
+		when args[:prayer] == :yes
+			"#{args[:name]} uttered a quick prayer to #{diety_name} to calm #{args[:possessive_pronoun]} nerves."
+		when args[:mediation] == :yes
+			"#{args[:name]} meditated to relieve stress and to calm #{args[:possessive_pronoun]} nerves."
+		when args[:prayer] == :sometimes
+			"#{args[:name]} thought about praying to #{diety_name}, but decided that #{args[:personal_pronoun]} #{args[:personal_pronoun]} can handle this situation on #{args[:possessive_pronoun]} own and id not need to pray just yet."
+		when args[:mediation] == :sometimes
+			"#{args[:name]} thought about medidate, but decided that #{args[:personal_pronoun]} can handle this situation on #{args[:possessive_pronoun]} own and did not need to medidate just yet."
+		else
+			"#{args[:name]} slowly breathed in and out to calm #{args[:possessive_pronoun]} nerves."
+		end
+	end
 
 end

@@ -19,6 +19,7 @@ def generate_character(args)
 	character_profile = Hash.new
 	character_profile[:name] = determine_name(args[:"sex"])
 	character_profile[:personal_pronoun] = determine_pronoun(args[:"sex"])
+	character_profile[:possessive_pronoun] = determine_possessive_pronoun(args[:"sex"])
 	character_profile[:fake_faith] = [:simulationism,:pantheism,:karma,:alien].sample
 	character_profile[:race] = determine_race(args[:race])
 	character_profile[:education] = determine_education(args[:educ])
