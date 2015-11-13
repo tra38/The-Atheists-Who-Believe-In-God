@@ -3,7 +3,7 @@ class Speech
 	def initialize(args)
 		@args = args
 		@text = []
-		@text << "#{args[:name]} (#{args[:race]} #{args[:wealth]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
+		@text << introduction
 		@text << why_is_the_character_delivering_the_speech
 		@text << experience_in_talking_to_theists
 		@text << "\n\n" + what_is_god
@@ -15,6 +15,10 @@ class Speech
 		@text << "\n\n#{room_reaction}\n\n"
 		# @text << angels_and_demons
 		@text = @text.join(" ")
+	end
+
+	def introduction
+		"#{args[:name]} (#{args[:race]}#{args[:hispanic]} #{args[:wealth]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
 	end
 
 	def why_is_the_character_delivering_the_speech

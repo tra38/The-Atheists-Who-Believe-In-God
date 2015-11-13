@@ -243,11 +243,9 @@ end
 def evaluate_hispanic_data(hispanic_data)
 	case hispanic_data
 	when 1
-		:yes
-	when 2
-		:no
+		" Hispanic "
 	else
-		:refuse_to_say
+		""
 	end
 end
 
