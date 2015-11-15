@@ -53,6 +53,12 @@ File.open("atheists.md", 'w') do |f|
 		f << speech.text
 		date += 1
 	end
+	data.each do |row|
+		speech = Speech.new(generate_character(row))
+		f << "###"+date.strftime('%a %b %d %Y')+"\n\n"
+		f << speech.text
+		date += 1
+	end
 end
 
 # hash = generate_character(data[0])

@@ -1150,3 +1150,1155 @@ He then held out a personal copy of the Bible. This 'Bible' is the literal word 
 
 The theists took notes.
 
+###Sat Sep 08 2007
+
+Lucas Becker (a 37-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lucas Becker meditated to relieve stress and to calm his nerves. 
+
+Lucas Becker used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Lucas Becker argued that Karma was a personal, physical being that humans can relate to and communicate with. 
+
+ Lucas Becker denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Lucas Becker smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. Lucas Becker laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Lucas Becker concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Lucas Becker's message.
+
+###Sun Sep 09 2007
+
+Loan Balistreri (a 45-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Loan Balistreri sometimes preached her views to theists, but still felt afraid. Loan Balistreri uttered a quick prayer to Alice to calm her nerves. As Loan Balistreri entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Loan Balistreri used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Loan Balistreri argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Loan Balistreri denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Loan Balistreri became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Loan Balistreri then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Loan Balistreri laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Loan Balistreri concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Loan Balistreri's message.
+
+###Mon Sep 10 2007
+
+Mirtha Okuneva (a 48-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mirtha Okuneva had never preached her views to theists before, and freaked out. Mirtha Okuneva uttered a quick prayer to Alice to calm her nerves. As Mirtha Okuneva entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Mirtha Okuneva used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Mirtha Okuneva argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from Alice, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Mirtha Okuneva denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Mirtha Okuneva smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Mirtha Okuneva then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Mirtha Okuneva declared that Alice strongly supports clear ethical standards that all humans must obey. Mirtha Okuneva concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Tue Sep 11 2007
+
+Alden Padberg (a 81-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alden Padberg sometimes preached his views to theists, but still felt afraid. Alden Padberg meditated to relieve stress and to calm his nerves. 
+
+Alden Padberg used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. 
+
+ Alden Padberg denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Alden Padberg laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Alden Padberg declared that Alice strongly supports clear ethical standards that all humans must obey. Alden Padberg concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Wed Sep 12 2007
+
+George Gusikowski (a 31-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! George Gusikowski had never preached his views to theists before, and freaked out. George Gusikowski thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As George Gusikowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+George Gusikowski used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  George Gusikowski argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ George Gusikowski denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. George Gusikowski became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. George Gusikowski concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The theists started to seriously consider George Gusikowski's message.
+
+###Thu Sep 13 2007
+
+Milan Moen (a 39-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Milan Moen had never preached his views to theists before, and freaked out. Milan Moen uttered a quick prayer to Karma to calm his nerves. As Milan Moen entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Milan Moen used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Milan Moen argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Milan Moen denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Milan Moen denounced the naivety of the religious people for believing in the existence of Heaven. Why must a person be rewarded for doing what he is supposed to do? The only thing that exist after this life is Hell. Good people are simply deleted from the universe after death. 
+
+Milan Moen then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Milan Moen declared that Karma strongly supports clear ethical standards that all humans must obey. Milan Moen concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started laughing at Milan Moen's flawed theology.
+
+###Fri Sep 14 2007
+
+Jake Jacobi (a 22-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jake Jacobi had never preached his views to theists before, and freaked out. Jake Jacobi uttered a quick prayer to the Unblinking Eye to calm his nerves. As Jake Jacobi entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Jake Jacobi used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jake Jacobi argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+ Jake Jacobi denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Jake Jacobi smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Jake Jacobi then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Jake Jacobi declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jake Jacobi concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started to seriously consider Jake Jacobi's message.
+
+###Sat Sep 15 2007
+
+Jackson Reichel (a 18-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jackson Reichel had never preached his views to theists before, and freaked out. Jackson Reichel slowly breathed in and out to calm his nerves. As Jackson Reichel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Jackson Reichel used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jackson Reichel argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Jackson Reichel denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Jackson Reichel laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Jackson Reichel denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Jackson Reichel declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jackson Reichel concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sun Sep 16 2007
+
+Tara Bruen (a 52-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Tara Bruen sometimes preached her views to theists, but still felt afraid. Tara Bruen meditated to relieve stress and to calm her nerves. As Tara Bruen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Tara Bruen used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Tara Bruen argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Tara Bruen denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Tara Bruen laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Tara Bruen denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Tara Bruen declared that Karma strongly supports clear ethical standards that all humans must obey. Tara Bruen concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Mon Sep 17 2007
+
+Marcia Luettgen (a 55-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marcia Luettgen had extensive experience in preaching her views to theists. She was not afraid. As Marcia Luettgen entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Marcia Luettgen used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Marcia Luettgen argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Marcia Luettgen laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Marcia Luettgen became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Marcia Luettgen then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Marcia Luettgen declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Marcia Luettgen concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. she asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Tue Sep 18 2007
+
+Rolland Fahey (a 22-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rolland Fahey had never preached his views to theists before, and freaked out. Rolland Fahey slowly breathed in and out to calm his nerves. As Rolland Fahey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Rolland Fahey used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Rolland Fahey argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+ Rolland Fahey denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Rolland Fahey smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Rolland Fahey then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Rolland Fahey declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Rolland Fahey concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Wed Sep 19 2007
+
+Mac Runte (a 62-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mac Runte sometimes preached his views to theists, but still felt afraid. Mac Runte thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Mac Runte entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Mac Runte used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
+
+ Mac Runte denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Mac Runte laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Mac Runte then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Mac Runte declared that Alice strongly supports clear ethical standards that all humans must obey. Mac Runte concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Thu Sep 20 2007
+
+Andrea Rogahn (a 33-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Andrea Rogahn sometimes preached his views to theists, but still felt afraid. Andrea Rogahn uttered a quick prayer to Karma to calm his nerves. As Andrea Rogahn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Andrea Rogahn used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Andrea Rogahn described an example where he personally witnessed Karma divinely healing someone. Andrea Rogahn argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Andrea Rogahn denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Andrea Rogahn smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Andrea Rogahn then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Andrea Rogahn declared that Karma strongly supports clear ethical standards that all humans must obey. Andrea Rogahn concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Fri Sep 21 2007
+
+Jospeh Mann (a 38-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jospeh Mann had never preached his views to theists before, and freaked out. Jospeh Mann slowly breathed in and out to calm his nerves. 
+
+Jospeh Mann used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Jospeh Mann laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Jospeh Mann declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Jospeh Mann concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sat Sep 22 2007
+
+Jaimee Hackett (a 56-year-old White  college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Jaimee Hackett slowly breathed in and out to calm her nerves. As Jaimee Hackett entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Jaimee Hackett used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of the Unblinking Eye, and it must be interpreted literally by a skilled scholar. Jaimee Hackett quoted extensively from the Bible for the remainder of the speech. Jaimee Hackett laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Jaimee Hackett smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Jaimee Hackett then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Jaimee Hackett declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jaimee Hackett concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. she asked all theists to convert. 
+
+The theists started laughing at Jaimee Hackett's flawed theology.
+
+###Sun Sep 23 2007
+
+Shirlee Cartwright (a 67-year-old American wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Shirlee Cartwright sometimes preached her views to theists, but still felt afraid. Shirlee Cartwright slowly breathed in and out to calm her nerves. As Shirlee Cartwright entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Shirlee Cartwright outright claimed to make the claim that the universe is controlled by a magical force called 'Karma'.  Shirlee Cartwright argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Shirlee Cartwright denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Shirlee Cartwright laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Shirlee Cartwright denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Shirlee Cartwright declared that Karma strongly supports clear ethical standards that all humans must obey. Shirlee Cartwright concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Shirlee Cartwright's message.
+
+###Mon Sep 24 2007
+
+Lindsay Zulauf (a 18-year-old Black middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lindsay Zulauf had extensive experience in preaching his views to theists. He was not afraid. As Lindsay Zulauf entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Lindsay Zulauf used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Lindsay Zulauf argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Lindsay Zulauf denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Lindsay Zulauf denounced the naivety of the religious people for believing in the existence of Heaven. Why must a person be rewarded for doing what he is supposed to do? The only thing that exist after this life is Hell. Good people are simply deleted from the universe after death. 
+
+Lindsay Zulauf then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Lindsay Zulauf declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Lindsay Zulauf concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Sep 25 2007
+
+Rosario Glover (a 52-year-old mixed race wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rosario Glover had extensive experience in preaching his views to theists. He was not afraid. As Rosario Glover entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Rosario Glover used practical experience and common sense to suggest that everyone is part of one Collective Consciousness. To prove his's point, Rosario Glover described an example where he personally witnessed the Collective Consciousness divinely healing someone. Rosario Glover argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
+
+ Rosario Glover denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Rosario Glover smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Rosario Glover then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Rosario Glover declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Rosario Glover concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists started to seriously consider Rosario Glover's message.
+
+###Wed Sep 26 2007
+
+Caren Kuvalis (a 79-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Caren Kuvalis had never preached her views to theists before, and freaked out. Caren Kuvalis thought about praying to the Collective Consciousness, but decided that she she can handle this situation on her own and id not need to pray just yet. As Caren Kuvalis entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Caren Kuvalis used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Caren Kuvalis argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of the Collective Consciousness, and it must be interpreted literally by a skilled scholar. Caren Kuvalis quoted extensively from the Bible for the remainder of the speech. Caren Kuvalis denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Caren Kuvalis smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Caren Kuvalis then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Caren Kuvalis declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Caren Kuvalis concluded her speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Sep 27 2007
+
+Grady Kuphal (a 19-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grady Kuphal had extensive experience in preaching his views to theists. He was not afraid. As Grady Kuphal entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Grady Kuphal used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Grady Kuphal argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Grady Kuphal denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Grady Kuphal laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Grady Kuphal denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Grady Kuphal declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Grady Kuphal concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Fri Sep 28 2007
+
+Yong Jacobson (an American  person) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Yong Jacobson sometimes preached his views to theists, but still felt afraid. Yong Jacobson uttered a quick prayer to Karma to calm his nerves. As Yong Jacobson entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Yong Jacobson used religious teachings and beliefs to make the claim that the universe is controlled by a magical force called 'Karma'.  Yong Jacobson argued that Karma was a personal, physical being that humans can relate to and communicate with. Yong Jacobson laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Karma created humans. Yong Jacobson smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Yong Jacobson then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Yong Jacobson laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Yong Jacobson concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The theists took notes.
+
+###Sat Sep 29 2007
+
+Marcus Rice (a 24-year-old Black  high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Marcus Rice sometimes preached his views to theists, but still felt afraid. Marcus Rice meditated to relieve stress and to calm his nerves. As Marcus Rice entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Marcus Rice used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Marcus Rice argued that Karma was a personal, physical being that humans can relate to and communicate with. Marcus Rice denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Marcus Rice attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Marcus Rice then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Marcus Rice declared that Karma strongly supports clear ethical standards that all humans must obey. Marcus Rice concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Karma's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Marcus Rice's flawed theology.
+
+###Sun Sep 30 2007
+
+Ted Hand (a 21-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Ted Hand had extensive experience in preaching his views to theists. He was not afraid. As Ted Hand entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Ted Hand used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Ted Hand argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of Alice, and it must be interpreted literally by a skilled scholar. Ted Hand quoted extensively from the Bible for the remainder of the speech. Ted Hand denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Ted Hand became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Ted Hand denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Ted Hand declared that Alice strongly supports clear ethical standards that all humans must obey. Ted Hand concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Ted Hand's flawed theology.
+
+###Mon Oct 01 2007
+
+Rodrick Davis (a 23-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rodrick Davis had extensive experience in preaching his views to theists. He was not afraid. As Rodrick Davis entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Rodrick Davis used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Rodrick Davis argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of the Unblinking Eye, and it must be interpreted literally by a skilled scholar. Rodrick Davis quoted extensively from the Bible for the remainder of the speech. Rodrick Davis denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Rodrick Davis became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Rodrick Davis then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Rodrick Davis laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Rodrick Davis concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists took notes.
+
+###Tue Oct 02 2007
+
+Stuart Boyle (a 54-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Boyle had extensive experience in preaching his views to theists. He was not afraid. As Stuart Boyle entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Stuart Boyle used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Stuart Boyle argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but its meaning is still shrouded in mystery. Stuart Boyle admitted to spending years studying this book, and expects to spend even more years understanding its secrets. Stuart Boyle denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Stuart Boyle attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Stuart Boyle then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Stuart Boyle declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Stuart Boyle concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Wed Oct 03 2007
+
+Gabriel Keebler (a 36-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gabriel Keebler had never preached his views to theists before, and freaked out. Gabriel Keebler slowly breathed in and out to calm his nerves. As Gabriel Keebler entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Gabriel Keebler used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Gabriel Keebler argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+ Gabriel Keebler denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Gabriel Keebler laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Gabriel Keebler denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Gabriel Keebler laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Gabriel Keebler concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Gabriel Keebler's message.
+
+###Thu Oct 04 2007
+
+Gerard Vandervort (a 43-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Gerard Vandervort had extensive experience in preaching his views to theists. He was not afraid. As Gerard Vandervort entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Gerard Vandervort used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Gerard Vandervort argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Gerard Vandervort denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Gerard Vandervort laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Gerard Vandervort denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Gerard Vandervort laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Gerard Vandervort concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Fri Oct 05 2007
+
+Jean Rolfson (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jean Rolfson had never preached her views to theists before, and freaked out. Jean Rolfson thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. As Jean Rolfson entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Jean Rolfson used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Jean Rolfson argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Jean Rolfson denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Jean Rolfson laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Jean Rolfson denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Jean Rolfson declared that Karma strongly supports clear ethical standards that all humans must obey. Jean Rolfson concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Jean Rolfson's message.
+
+###Sat Oct 06 2007
+
+Herbert Larson (an American  person) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Herbert Larson had never preached his views to theists before, and freaked out. Herbert Larson slowly breathed in and out to calm his nerves. As Herbert Larson entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Herbert Larson used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. Herbert Larson argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but its meaning is still shrouded in mystery. Herbert Larson admitted to spending years studying this book, and expects to spend even more years understanding its secrets. Herbert Larson laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Herbert Larson denounced the naivety of the religious people for believing in the existence of Heaven. Why must a person be rewarded for doing what he is supposed to do? The only thing that exist after this life is Hell. Good people are simply deleted from the universe after death. 
+
+Herbert Larson denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Herbert Larson declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Herbert Larson concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sun Oct 07 2007
+
+Melina Hodkiewicz (an Asian  academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Melina Hodkiewicz sometimes preached her views to theists, but still felt afraid. Melina Hodkiewicz thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. 
+
+Melina Hodkiewicz outright claimed to make the claim that the universe is controlled by a magical force called 'Karma'.  Melina Hodkiewicz argued that Karma was a personal, physical being that humans can relate to and communicate with. Melina Hodkiewicz denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Melina Hodkiewicz laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Melina Hodkiewicz laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Melina Hodkiewicz concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Melina Hodkiewicz's message.
+
+###Mon Oct 08 2007
+
+Lucio Hackett (a 25-year-old mixed race poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lucio Hackett had never preached his views to theists before, and freaked out. Lucio Hackett meditated to relieve stress and to calm his nerves. As Lucio Hackett entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Lucio Hackett used practical experience and common sense to suggest that everyone is part of one Collective Consciousness. To prove his's point, Lucio Hackett described an example where he personally witnessed the Collective Consciousness divinely healing someone. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Collective Consciousness, but its meaning is still shrouded in mystery. Lucio Hackett admitted to spending years studying this book, and expects to spend even more years understanding its secrets. Lucio Hackett smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Lucio Hackett then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Lucio Hackett declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Lucio Hackett concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Oct 09 2007
+
+Ross Paucek (a 36-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Ross Paucek had never preached his views to theists before, and freaked out. Ross Paucek thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Ross Paucek entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Ross Paucek used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Ross Paucek argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of the Unblinking Eye, and it must be interpreted literally by a skilled scholar. Ross Paucek quoted extensively from the Bible for the remainder of the speech. Ross Paucek denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Ross Paucek smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Ross Paucek then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Ross Paucek declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Ross Paucek concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Wed Oct 10 2007
+
+Samuel McKenzie (a 31-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Samuel McKenzie had never preached his views to theists before, and freaked out. Samuel McKenzie thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Samuel McKenzie entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Samuel McKenzie used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Samuel McKenzie argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Samuel McKenzie denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Samuel McKenzie laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Samuel McKenzie denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Samuel McKenzie declared that Alice strongly supports clear ethical standards that all humans must obey. Samuel McKenzie concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Samuel McKenzie's message.
+
+###Thu Oct 11 2007
+
+Grover Schowalter (a 22-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grover Schowalter sometimes preached his views to theists, but still felt afraid. Grover Schowalter meditated to relieve stress and to calm his nerves. As Grover Schowalter entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Grover Schowalter used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Grover Schowalter argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Grover Schowalter laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Alice created humans. Grover Schowalter attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Grover Schowalter then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Grover Schowalter declared that Alice strongly supports clear ethical standards that all humans must obey. Grover Schowalter concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started laughing at Grover Schowalter's flawed theology.
+
+###Fri Oct 12 2007
+
+Monty Hamill (a 34-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monty Hamill had extensive experience in preaching his views to theists. He was not afraid. As Monty Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Monty Hamill used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Monty Hamill argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Monty Hamill denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Monty Hamill attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Monty Hamill denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Monty Hamill declared that Alice strongly supports clear ethical standards that all humans must obey. Monty Hamill concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Monty Hamill's message.
+
+###Sat Oct 13 2007
+
+Elvis Bernhard (a 53-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elvis Bernhard sometimes preached his views to theists, but still felt afraid. Elvis Bernhard thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Elvis Bernhard entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Elvis Bernhard used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Elvis Bernhard argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Elvis Bernhard denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Elvis Bernhard laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Elvis Bernhard then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Elvis Bernhard declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Elvis Bernhard concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists took notes.
+
+###Sun Oct 14 2007
+
+Marjory Tromp (a 27-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marjory Tromp had never preached her views to theists before, and freaked out. Marjory Tromp slowly breathed in and out to calm her nerves. As Marjory Tromp entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Marjory Tromp used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  
+
+ Marjory Tromp denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Marjory Tromp laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Marjory Tromp denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Marjory Tromp declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Marjory Tromp concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Mon Oct 15 2007
+
+Tessa Borer (a 65-year-old mixed race  academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tessa Borer sometimes preached her views to theists, but still felt afraid. Tessa Borer thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Tessa Borer entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Tessa Borer outright claimed that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Tessa Borer denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Tessa Borer laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Tessa Borer denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Tessa Borer laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Tessa Borer concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Tue Oct 16 2007
+
+Erick Bailey (a 38-year-old White  college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erick Bailey sometimes preached his views to theists, but still felt afraid. Erick Bailey thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Erick Bailey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Erick Bailey used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Erick Bailey argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Erick Bailey denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Erick Bailey laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Erick Bailey then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Erick Bailey declared that Karma strongly supports clear ethical standards that all humans must obey. Erick Bailey concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Erick Bailey's message.
+
+###Wed Oct 17 2007
+
+Luisa Lang (an American wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Luisa Lang sometimes preached her views to theists, but still felt afraid. Luisa Lang uttered a quick prayer to Karma to calm her nerves. As Luisa Lang entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Luisa Lang used religious teachings and beliefs to make the claim that the universe is controlled by a magical force called 'Karma'.  Luisa Lang argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Luisa Lang laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Karma created humans. Luisa Lang became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Luisa Lang then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Luisa Lang declared that Karma strongly supports clear ethical standards that all humans must obey. Luisa Lang concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Oct 18 2007
+
+Wilma Luettgen (a 37-year-old White middle-class college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilma Luettgen had never preached her views to theists before, and freaked out. Wilma Luettgen uttered a quick prayer to the Unblinking Eye to calm her nerves. As Wilma Luettgen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Wilma Luettgen used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. To prove her's point, Wilma Luettgen described an example where she personally witnessed the Unblinking Eye divinely healing someone. Wilma Luettgen argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Wilma Luettgen denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Wilma Luettgen attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Wilma Luettgen then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Wilma Luettgen laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Wilma Luettgen concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started to seriously consider Wilma Luettgen's message.
+
+###Fri Oct 19 2007
+
+Reynaldo Dickens (a 24-year-old Asian wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Reynaldo Dickens sometimes preached his views to theists, but still felt afraid. Reynaldo Dickens slowly breathed in and out to calm his nerves. As Reynaldo Dickens entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Reynaldo Dickens used scientific information to suggest that everyone is part of one Collective Consciousness.  Reynaldo Dickens argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Reynaldo Dickens denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Reynaldo Dickens smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Reynaldo Dickens denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Reynaldo Dickens declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Reynaldo Dickens concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists started to seriously consider Reynaldo Dickens's message.
+
+###Sat Oct 20 2007
+
+Allyn Erdman (a 70-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Allyn Erdman sometimes preached her views to theists, but still felt afraid. Allyn Erdman thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. As Allyn Erdman entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Allyn Erdman used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
+
+ Allyn Erdman denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Allyn Erdman laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Allyn Erdman denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Allyn Erdman declared that Karma strongly supports clear ethical standards that all humans must obey. Allyn Erdman concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of Karma's ideal vision of truth and justice. she asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sun Oct 21 2007
+
+Michal Ferry (a 45-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Michal Ferry sometimes preached his views to theists, but still felt afraid. Michal Ferry meditated to relieve stress and to calm his nerves. As Michal Ferry entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+  
+
+ Michal Ferry denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Michal Ferry laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Michal Ferry denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Michal Ferry declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Michal Ferry concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started laughing at Michal Ferry's flawed theology.
+
+###Mon Oct 22 2007
+
+Birgit Schiller (a 81-year-old Black poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Birgit Schiller sometimes preached her views to theists, but still felt afraid. Birgit Schiller thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Birgit Schiller entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Birgit Schiller used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Birgit Schiller argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+ Birgit Schiller denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Birgit Schiller laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Birgit Schiller then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Birgit Schiller declared that Alice strongly supports clear ethical standards that all humans must obey. Birgit Schiller concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Oct 23 2007
+
+Rubin Ledner (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rubin Ledner had never preached his views to theists before, and freaked out. Rubin Ledner thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Rubin Ledner entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Rubin Ledner used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Rubin Ledner argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+ Rubin Ledner denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Rubin Ledner explained how evil people are doomed to enter Hell for going against the commands of Alice. 
+
+Rubin Ledner then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Rubin Ledner declared that Alice strongly supports clear ethical standards that all humans must obey. Rubin Ledner concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The theists started to seriously consider Rubin Ledner's message.
+
+###Wed Oct 24 2007
+
+Garfield Stokes (a 19-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Garfield Stokes had extensive experience in preaching his views to theists. He was not afraid. As Garfield Stokes entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Garfield Stokes used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Garfield Stokes argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of Alice, and it must be interpreted literally by a skilled scholar. Garfield Stokes quoted extensively from the Bible for the remainder of the speech. Garfield Stokes denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Garfield Stokes smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Garfield Stokes then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Garfield Stokes declared that Alice strongly supports clear ethical standards that all humans must obey. Garfield Stokes concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Garfield Stokes's flawed theology.
+
+###Thu Oct 25 2007
+
+Elaina Blanda (a 55-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elaina Blanda uttered a quick prayer to the Collective Consciousness to calm her nerves. 
+
+Elaina Blanda outright claimed that everyone is part of one Collective Consciousness. Elaina Blanda argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from the Collective Consciousness, but its meaning is still shrouded in mystery. Elaina Blanda admitted to spending years studying this book, and expects to spend even more years understanding its secrets. Elaina Blanda laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Collective Consciousness created humans. Elaina Blanda smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Elaina Blanda then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Elaina Blanda laughed at the idea of 'clear ethical standards'; the Collective Consciousness supports ethical relativism in all affairs. Elaina Blanda concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. she asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Fri Oct 26 2007
+
+Benedict Hamill (a 74-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Benedict Hamill had never preached his views to theists before, and freaked out. Benedict Hamill slowly breathed in and out to calm his nerves. As Benedict Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Benedict Hamill used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Benedict Hamill argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Benedict Hamill denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Benedict Hamill laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Benedict Hamill denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Benedict Hamill laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Benedict Hamill concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists took notes.
+
+###Sat Oct 27 2007
+
+David Klocko (a 64-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. David Klocko sometimes preached his views to theists, but still felt afraid. David Klocko thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As David Klocko entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+David Klocko used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
+
+ David Klocko denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. David Klocko laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+David Klocko denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. David Klocko declared that Karma strongly supports clear ethical standards that all humans must obey. David Klocko concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Sun Oct 28 2007
+
+Tilda Christiansen (a 78-year-old White  college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tilda Christiansen sometimes preached her views to theists, but still felt afraid. Tilda Christiansen meditated to relieve stress and to calm her nerves. As Tilda Christiansen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Tilda Christiansen used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
+
+ Tilda Christiansen denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Tilda Christiansen laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Tilda Christiansen denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Tilda Christiansen declared that Alice strongly supports clear ethical standards that all humans must obey. Tilda Christiansen concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Mon Oct 29 2007
+
+Erick Huel (a 21-year-old Black  college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Erick Huel had never preached his views to theists before, and freaked out. Erick Huel slowly breathed in and out to calm his nerves. As Erick Huel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Erick Huel used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Erick Huel argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from Karma, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Erick Huel denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Erick Huel smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Erick Huel then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Erick Huel declared that Karma strongly supports clear ethical standards that all humans must obey. Erick Huel concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Karma's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Oct 30 2007
+
+Bettina Wehner (a 55-year-old American middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Bettina Wehner uttered a quick prayer to the Unblinking Eye to calm her nerves. As Bettina Wehner entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Bettina Wehner used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Bettina Wehner argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. Bettina Wehner laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Bettina Wehner attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Bettina Wehner then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Bettina Wehner declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Bettina Wehner concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started laughing at Bettina Wehner's flawed theology.
+
+###Wed Oct 31 2007
+
+Art Lynch (a 27-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Art Lynch had never preached his views to theists before, and freaked out. Art Lynch thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Art Lynch entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Art Lynch used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Art Lynch argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Art Lynch denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Art Lynch attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Art Lynch denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Art Lynch laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Art Lynch concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Thu Nov 01 2007
+
+Christinia Koss (a 51-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Christinia Koss had never preached her views to theists before, and freaked out. Christinia Koss slowly breathed in and out to calm her nerves. As Christinia Koss entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Christinia Koss used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Christinia Koss argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Christinia Koss denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Christinia Koss laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Christinia Koss then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Christinia Koss declared that Alice strongly supports clear ethical standards that all humans must obey. Christinia Koss concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Fri Nov 02 2007
+
+Monte Rutherford (a 41-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monte Rutherford sometimes preached his views to theists, but still felt afraid. Monte Rutherford meditated to relieve stress and to calm his nerves. As Monte Rutherford entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Monte Rutherford used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Monte Rutherford argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Monte Rutherford denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Monte Rutherford attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Monte Rutherford then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Monte Rutherford declared that Alice strongly supports clear ethical standards that all humans must obey. Monte Rutherford concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Sat Nov 03 2007
+
+Stuart Durgan (a 48-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Durgan sometimes preached his views to theists, but still felt afraid. Stuart Durgan thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Stuart Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Stuart Durgan used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Stuart Durgan argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Stuart Durgan denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Stuart Durgan explained how abandoning religion and truly believing in the Alice would allow them to go to Heaven. 
+
+Stuart Durgan denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Stuart Durgan declared that Alice strongly supports clear ethical standards that all humans must obey. Stuart Durgan concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Sun Nov 04 2007
+
+Randy Schmeler (a 39-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Randy Schmeler sometimes preached his views to theists, but still felt afraid. Randy Schmeler uttered a quick prayer to the Unblinking Eye to calm his nerves. As Randy Schmeler entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Randy Schmeler used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Randy Schmeler argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Randy Schmeler laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Randy Schmeler attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Randy Schmeler denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Randy Schmeler laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Randy Schmeler concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Mon Nov 05 2007
+
+Shena Halvorson (a 26-year-old American wealthy blue-collar laborer) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Shena Halvorson thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. 
+
+Shena Halvorson used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from Alice, but its meaning is still shrouded in mystery. Shena Halvorson admitted to spending years studying this book, and expects to spend even more years understanding its secrets. Shena Halvorson explained how abandoning religion and truly believing in the Alice would allow them to go to Heaven. Shena Halvorson declared that Alice strongly supports clear ethical standards that all humans must obey. Shena Halvorson concluded her speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Nov 06 2007
+
+Dorinda Farrell (a 61-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dorinda Farrell had extensive experience in preaching her views to theists. She was not afraid. As Dorinda Farrell entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Dorinda Farrell used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Dorinda Farrell argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Dorinda Farrell denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Dorinda Farrell became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Dorinda Farrell denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Dorinda Farrell declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Dorinda Farrell concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started to seriously consider Dorinda Farrell's message.
+
+###Wed Nov 07 2007
+
+Mui Smitham (a 22-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mui Smitham sometimes preached her views to theists, but still felt afraid. Mui Smitham slowly breathed in and out to calm her nerves. As Mui Smitham entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Mui Smitham used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Mui Smitham argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Mui Smitham denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Mui Smitham laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Mui Smitham then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Mui Smitham declared that Karma strongly supports clear ethical standards that all humans must obey. Mui Smitham concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists started to seriously consider Mui Smitham's message.
+
+###Thu Nov 08 2007
+
+Elisa Heaney (a White  college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elisa Heaney had never preached her views to theists before, and freaked out. Elisa Heaney uttered a quick prayer to Karma to calm her nerves. As Elisa Heaney entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Elisa Heaney used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Elisa Heaney denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Elisa Heaney smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Elisa Heaney then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Elisa Heaney concluded her speech by asking theists to convert to the one truth path and embrace secularism. 
+
+The theists took notes.
+
+###Fri Nov 09 2007
+
+Cory Predovic (a 19-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Cory Predovic uttered a quick prayer to the Collective Consciousness to calm his nerves. As Cory Predovic entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Cory Predovic outright claimed that everyone is part of one Collective Consciousness.  Cory Predovic argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of the Collective Consciousness, and it must be interpreted literally by a skilled scholar. Cory Predovic quoted extensively from the Bible for the remainder of the speech. Cory Predovic smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Cory Predovic then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Cory Predovic concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sat Nov 10 2007
+
+Sal Crist (a 38-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sal Crist had extensive experience in preaching his views to theists. He was not afraid. As Sal Crist entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Sal Crist used philosophy and reason to suggest that everyone is part of one Collective Consciousness.  Sal Crist argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
+
+ Sal Crist denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Sal Crist attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Sal Crist denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Sal Crist declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Sal Crist concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sun Nov 11 2007
+
+Palmer Lemke (a 62-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Palmer Lemke had never preached his views to theists before, and freaked out. Palmer Lemke thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Palmer Lemke entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Palmer Lemke used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Palmer Lemke argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Palmer Lemke denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Palmer Lemke laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Palmer Lemke denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Palmer Lemke declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Palmer Lemke concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists took notes.
+
+###Mon Nov 12 2007
+
+Wilford Hermiston (a 18-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilford Hermiston sometimes preached his views to theists, but still felt afraid. Wilford Hermiston slowly breathed in and out to calm his nerves. As Wilford Hermiston entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Wilford Hermiston used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Wilford Hermiston argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Wilford Hermiston laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Wilford Hermiston attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Wilford Hermiston then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Wilford Hermiston laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Wilford Hermiston concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started to seriously consider Wilford Hermiston's message.
+
+###Tue Nov 13 2007
+
+Marion Gaylord (a 38-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marion Gaylord had never preached his views to theists before, and freaked out. Marion Gaylord thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Marion Gaylord entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Marion Gaylord used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Marion Gaylord argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Collective Consciousness, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Marion Gaylord laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Collective Consciousness created humans. Marion Gaylord smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Marion Gaylord then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Marion Gaylord declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Marion Gaylord concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists took notes.
+
+###Wed Nov 14 2007
+
+Alfred Hegmann (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alfred Hegmann had extensive experience in preaching his views to theists. He was not afraid. As Alfred Hegmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Alfred Hegmann used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Alfred Hegmann argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Alfred Hegmann denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Alfred Hegmann laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Alfred Hegmann denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Alfred Hegmann declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Alfred Hegmann concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Alfred Hegmann's flawed theology.
+
+###Thu Nov 15 2007
+
+Gus Gutmann (a 68-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gus Gutmann sometimes preached his views to theists, but still felt afraid. Gus Gutmann meditated to relieve stress and to calm his nerves. As Gus Gutmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Gus Gutmann used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Gus Gutmann argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Gus Gutmann denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Gus Gutmann laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Gus Gutmann denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Gus Gutmann laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Gus Gutmann concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Fri Nov 16 2007
+
+Vaughn Morar (a 33-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Vaughn Morar had extensive experience in preaching his views to theists. He was not afraid. As Vaughn Morar entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Vaughn Morar used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Vaughn Morar argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Vaughn Morar denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Vaughn Morar laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Vaughn Morar then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Vaughn Morar declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Vaughn Morar concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sat Nov 17 2007
+
+Freddie Runolfsson (a 77-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Freddie Runolfsson had never preached his views to theists before, and freaked out. Freddie Runolfsson slowly breathed in and out to calm his nerves. As Freddie Runolfsson entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Freddie Runolfsson used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Freddie Runolfsson argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Freddie Runolfsson laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Collective Consciousness created humans. Freddie Runolfsson laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Freddie Runolfsson then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Freddie Runolfsson laughed at the idea of 'clear ethical standards'; the Collective Consciousness supports ethical relativism in all affairs. Freddie Runolfsson concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists started laughing at Freddie Runolfsson's flawed theology.
+
+###Sun Nov 18 2007
+
+Laverne Rempel (a 20-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Laverne Rempel had extensive experience in preaching his views to theists. He was not afraid. As Laverne Rempel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Laverne Rempel used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Laverne Rempel argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Laverne Rempel denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Laverne Rempel became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Laverne Rempel then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Laverne Rempel declared that Karma strongly supports clear ethical standards that all humans must obey. Laverne Rempel concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Karma's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Laverne Rempel's flawed theology.
+
+###Mon Nov 19 2007
+
+Zoraida Grimes (a 78-year-old White middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zoraida Grimes had never preached her views to theists before, and freaked out. Zoraida Grimes slowly breathed in and out to calm her nerves. As Zoraida Grimes entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Zoraida Grimes used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Zoraida Grimes argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Zoraida Grimes denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Zoraida Grimes laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Zoraida Grimes denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Zoraida Grimes declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Zoraida Grimes concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Tue Nov 20 2007
+
+Stanford Hagenes (a 73-year-old Black poor person who was unable to attend high school) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Stanford Hagenes had never preached his views to theists before, and freaked out. Stanford Hagenes slowly breathed in and out to calm his nerves. As Stanford Hagenes entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Stanford Hagenes used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Stanford Hagenes argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Stanford Hagenes denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Stanford Hagenes laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Stanford Hagenes then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Stanford Hagenes declared that Alice strongly supports clear ethical standards that all humans must obey. Stanford Hagenes concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Wed Nov 21 2007
+
+Darla Rowe (a 75-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Darla Rowe had extensive experience in preaching her views to theists. She was not afraid. As Darla Rowe entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Darla Rowe used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Darla Rowe argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Darla Rowe denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Darla Rowe laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Darla Rowe denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Darla Rowe declared that Karma strongly supports clear ethical standards that all humans must obey. Darla Rowe concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Nov 22 2007
+
+Emilio Witting (a 38-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Emilio Witting had never preached his views to theists before, and freaked out. Emilio Witting slowly breathed in and out to calm his nerves. As Emilio Witting entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Emilio Witting used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Emilio Witting argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+ Emilio Witting denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Emilio Witting laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Emilio Witting then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Emilio Witting declared that Alice strongly supports clear ethical standards that all humans must obey. Emilio Witting concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Fri Nov 23 2007
+
+Emma Sanford (a 67-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Emma Sanford had extensive experience in preaching her views to theists. She was not afraid. As Emma Sanford entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Emma Sanford used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. To prove her's point, Emma Sanford described an example where she personally witnessed the Unblinking Eye divinely healing someone. Emma Sanford argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of the Unblinking Eye, and it must be interpreted literally by a skilled scholar. Emma Sanford quoted extensively from the Bible for the remainder of the speech. Emma Sanford laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Emma Sanford smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Emma Sanford then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Emma Sanford declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Emma Sanford concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. she asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Sat Nov 24 2007
+
+Alysha Cartwright (a 49-year-old White  college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alysha Cartwright had extensive experience in preaching her views to theists. She was not afraid. As Alysha Cartwright entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Alysha Cartwright used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Alysha Cartwright argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from Alice, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Alysha Cartwright denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Alysha Cartwright became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Alysha Cartwright then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Alysha Cartwright declared that Alice strongly supports clear ethical standards that all humans must obey. Alysha Cartwright concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Sun Nov 25 2007
+
+Kelley Hettinger (a 64-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kelley Hettinger sometimes preached his views to theists, but still felt afraid. Kelley Hettinger slowly breathed in and out to calm his nerves. 
+
+Kelley Hettinger used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Kelley Hettinger argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Kelley Hettinger denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Kelley Hettinger laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Kelley Hettinger denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Kelley Hettinger declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Kelley Hettinger concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists took notes.
+
+###Mon Nov 26 2007
+
+Willena Schaefer (a 64-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willena Schaefer had extensive experience in preaching her views to theists. She was not afraid. As Willena Schaefer entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Willena Schaefer used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Willena Schaefer argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+She then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Willena Schaefer denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Willena Schaefer denounced the naivety of the religious people for believing in the existence of Heaven. Why must a person be rewarded for doing what he is supposed to do? The only thing that exist after this life is Hell. Good people are simply deleted from the universe after death. 
+
+Willena Schaefer then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Willena Schaefer declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Willena Schaefer concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The theists started laughing at Willena Schaefer's flawed theology.
+
+###Tue Nov 27 2007
+
+Maurice Kshlerin (a 51-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Maurice Kshlerin had extensive experience in preaching her views to theists. She was not afraid. As Maurice Kshlerin entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Maurice Kshlerin used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Maurice Kshlerin described an example where she personally witnessed Alice divinely healing someone. 
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of Alice, and it must be interpreted literally by a skilled scholar. Maurice Kshlerin quoted extensively from the Bible for the remainder of the speech. Maurice Kshlerin laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Alice created humans. Maurice Kshlerin smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Maurice Kshlerin then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Maurice Kshlerin declared that Alice strongly supports clear ethical standards that all humans must obey. Maurice Kshlerin concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started laughing at Maurice Kshlerin's flawed theology.
+
+###Wed Nov 28 2007
+
+Andrea Kuhn (a 59-year-old White  academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Andrea Kuhn had never preached his views to theists before, and freaked out. Andrea Kuhn thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Andrea Kuhn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Andrea Kuhn used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Andrea Kuhn argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of the Unblinking Eye, and it must be interpreted literally by a skilled scholar. Andrea Kuhn quoted extensively from the Bible for the remainder of the speech. Andrea Kuhn denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Andrea Kuhn smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Andrea Kuhn then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Andrea Kuhn declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Andrea Kuhn concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Nov 29 2007
+
+Jospeh Zemlak (an American  college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jospeh Zemlak had extensive experience in preaching his views to theists. He was not afraid. As Jospeh Zemlak entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Jospeh Zemlak used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jospeh Zemlak argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Unblinking Eye, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Jospeh Zemlak laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Jospeh Zemlak smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Jospeh Zemlak denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Jospeh Zemlak declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jospeh Zemlak concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists started laughing at Jospeh Zemlak's flawed theology.
+
+###Fri Nov 30 2007
+
+Sam Powlowski (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sam Powlowski had never preached his views to theists before, and freaked out. Sam Powlowski slowly breathed in and out to calm his nerves. As Sam Powlowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Sam Powlowski used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Sam Powlowski argued that Alice was a personal, physical being that humans can relate to and communicate with. 
+
+ Sam Powlowski denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Sam Powlowski laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Sam Powlowski then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Sam Powlowski laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Sam Powlowski concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
+###Sat Dec 01 2007
+
+Chelsea Schaden (a 69-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Chelsea Schaden had extensive experience in preaching her views to theists. She was not afraid. As Chelsea Schaden entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Chelsea Schaden used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Chelsea Schaden argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Chelsea Schaden laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Alice created humans. Chelsea Schaden laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Chelsea Schaden denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Chelsea Schaden laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Chelsea Schaden concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Chelsea Schaden's message.
+
+###Sun Dec 02 2007
+
+Kendall Dickens (a 65-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Kendall Dickens had never preached his views to theists before, and freaked out. Kendall Dickens meditated to relieve stress and to calm his nerves. As Kendall Dickens entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Kendall Dickens used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Kendall Dickens argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Kendall Dickens denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Kendall Dickens laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Kendall Dickens denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Kendall Dickens laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Kendall Dickens concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Kendall Dickens's message.
+
+###Mon Dec 03 2007
+
+Willy Beer (a 65-year-old White middle-class academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willy Beer sometimes preached his views to theists, but still felt afraid. Willy Beer meditated to relieve stress and to calm his nerves. As Willy Beer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Willy Beer used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Willy Beer argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Willy Beer denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Willy Beer laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Willy Beer denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Willy Beer declared that Alice strongly supports clear ethical standards that all humans must obey. Willy Beer concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists took notes.
+
+###Tue Dec 04 2007
+
+Violette Kris (a 55-year-old White poor academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Violette Kris had never preached her views to theists before, and freaked out. Violette Kris thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Violette Kris entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Violette Kris used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Violette Kris argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Violette Kris denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Violette Kris laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Violette Kris then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Violette Kris laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Violette Kris concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. she asked all theists to convert. 
+
+The theists started laughing at Violette Kris's flawed theology.
+
+###Wed Dec 05 2007
+
+Guy Weissnat (a 33-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Guy Weissnat had never preached his views to theists before, and freaked out. Guy Weissnat meditated to relieve stress and to calm his nerves. As Guy Weissnat entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Guy Weissnat used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Guy Weissnat argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
+
+ Guy Weissnat denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Unblinking Eye created humans. Guy Weissnat attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Guy Weissnat then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Guy Weissnat laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Guy Weissnat concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Dec 06 2007
+
+Louis Koepp (a 18-year-old White  college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Louis Koepp had extensive experience in preaching her views to theists. She was not afraid. As Louis Koepp entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Louis Koepp used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Louis Koepp described an example where she personally witnessed Alice divinely healing someone. Louis Koepp argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of Alice, and it must be interpreted literally by a skilled scholar. Louis Koepp quoted extensively from the Bible for the remainder of the speech. Louis Koepp laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Alice created humans. Louis Koepp smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Louis Koepp then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Louis Koepp declared that Alice strongly supports clear ethical standards that all humans must obey. Louis Koepp concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. she asked all theists to convert. 
+
+The theists took notes.
+
+###Fri Dec 07 2007
+
+Otto Boyer (a 47-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Otto Boyer had never preached his views to theists before, and freaked out. Otto Boyer uttered a quick prayer to Karma to calm his nerves. As Otto Boyer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Otto Boyer used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Otto Boyer described an example where he personally witnessed Karma divinely healing someone. Otto Boyer argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Otto Boyer denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Otto Boyer laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Otto Boyer then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Otto Boyer declared that Karma strongly supports clear ethical standards that all humans must obey. Otto Boyer concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists took notes.
+
+###Sat Dec 08 2007
+
+Emmitt D'Amore (a 46-year-old Black wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Emmitt D'Amore had never preached his views to theists before, and freaked out. Emmitt D'Amore uttered a quick prayer to Karma to calm his nerves. As Emmitt D'Amore entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Emmitt D'Amore used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Emmitt D'Amore described an example where he personally witnessed Karma divinely healing someone. Emmitt D'Amore argued that Karma was a personal, physical being that humans can relate to and communicate with. Emmitt D'Amore smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Emmitt D'Amore then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Emmitt D'Amore laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Emmitt D'Amore concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The theists took notes.
+
+###Sun Dec 09 2007
+
+Fredrick Aufderhar (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Fredrick Aufderhar thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Fredrick Aufderhar entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Fredrick Aufderhar used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Fredrick Aufderhar argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Fredrick Aufderhar denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Fredrick Aufderhar attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
+
+Fredrick Aufderhar denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Fredrick Aufderhar laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Fredrick Aufderhar concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
+
+The theists started to seriously consider Fredrick Aufderhar's message.
+
+###Mon Dec 10 2007
+
+Nicky Altenwerth (a White  college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Nicky Altenwerth had never preached his views to theists before, and freaked out. Nicky Altenwerth slowly breathed in and out to calm his nerves. As Nicky Altenwerth entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Nicky Altenwerth used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Nicky Altenwerth argued that Karma was a personal, physical being that humans can relate to and communicate with. 
+
+ Nicky Altenwerth denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Nicky Altenwerth laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Nicky Altenwerth denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Nicky Altenwerth declared that Karma strongly supports clear ethical standards that all humans must obey. Nicky Altenwerth concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Tue Dec 11 2007
+
+Elmer Collins (a 18-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elmer Collins had extensive experience in preaching his views to theists. He was not afraid. As Elmer Collins entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+
+Elmer Collins used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Elmer Collins argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' came directly from the Collective Consciousness, but ignorant people have chosen to interpret the book literally. A literal interpretion is one that is doomed to failure. Only metaphors lead to success. Elmer Collins denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Elmer Collins smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Elmer Collins then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Elmer Collins declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Elmer Collins concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Wed Dec 12 2007
+
+Morgan Medhurst (a 24-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Morgan Medhurst had extensive experience in preaching his views to theists. He was not afraid. As Morgan Medhurst entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Morgan Medhurst used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Morgan Medhurst described an example where he personally witnessed Karma divinely healing someone. Morgan Medhurst argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+ Morgan Medhurst laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Karma created humans. Morgan Medhurst smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
+
+Morgan Medhurst then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Morgan Medhurst concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Karma's ideal vision of truth and justice. he asked all theists to convert. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Thu Dec 13 2007
+
+Therese Ondricka (a 18-year-old White  high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Therese Ondricka had extensive experience in preaching her views to theists. She was not afraid. As Therese Ondricka entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Therese Ondricka used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
+
+She then held out a personal copy of the Bible. This 'Bible' is the literal word of Karma, and it must be interpreted literally by a skilled scholar. Therese Ondricka quoted extensively from the Bible for the remainder of the speech. Therese Ondricka denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Therese Ondricka laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. 
+
+Therese Ondricka then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Therese Ondricka declared that Karma strongly supports clear ethical standards that all humans must obey. Therese Ondricka concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Fri Dec 14 2007
+
+Bernie Durgan (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Bernie Durgan had never preached his views to theists before, and freaked out. Bernie Durgan thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Bernie Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+
+Bernie Durgan used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Bernie Durgan argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Bernie Durgan laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Karma created humans. Bernie Durgan became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
+
+Bernie Durgan then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Bernie Durgan declared that Karma strongly supports clear ethical standards that all humans must obey. Bernie Durgan concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
+
+The room remained silent, as the theists try to take into account what they have just heard.
+
+###Sat Dec 15 2007
+
+Erwin O'Keefe (a 46-year-old White  high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erwin O'Keefe had extensive experience in preaching his views to theists. He was not afraid. 
+
+Erwin O'Keefe used practical experience and common sense to suggest that everyone is part of one Collective Consciousness. To prove his's point, Erwin O'Keefe described an example where he personally witnessed the Collective Consciousness divinely healing someone. Erwin O'Keefe argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
+
+He then held out a personal copy of the Bible. This 'Bible' is the literal word of the Collective Consciousness, and it must be interpreted literally by a skilled scholar. Erwin O'Keefe quoted extensively from the Bible for the remainder of the speech. Erwin O'Keefe denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how the Collective Consciousness created humans. Erwin O'Keefe explained how abandoning religion and truly believing in the the Collective Consciousness would allow them to go to Heaven. Erwin O'Keefe laughed at the idea of 'clear ethical standards'; the Collective Consciousness supports ethical relativism in all affairs. Erwin O'Keefe concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
+
+The theists giggled, but still tried to pay their respects to the speaker.
+
