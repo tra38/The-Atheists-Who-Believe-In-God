@@ -19,15 +19,29 @@ end
 def determine_race(race_data) #What is your race?
 	case race_data
 	when 1
-		race = "a White"
+		race = "White"
 	when 2
-		race = "a Black"
+		race = "Black"
 	when 3
-		race = "an Asian"
+		race = "Asian"
 	when 4
-		race = "a mixed race"
-	when 5 #don't know, refuse to answer
-		race = "an American"
+		race = "mixed race"
+	else #don't know, refuse to answer
+		race = "American"
+	end
+end
+
+def determine_age(age_data, race_data) #how old are you?
+	case age_data
+	when 99
+		race = determine_race(race_data)
+		if race[0].match(/[aeiou]/i)
+			"an "
+		else
+			"a "
+		end
+	else
+		"a #{age_data}-year-old "
 	end
 end
 
@@ -214,7 +228,7 @@ def evaluate_divine_healing(data)
 	when data == 2
 		:no
 	else
-		:refuse_to_say
+		nil
 	end
 end
 

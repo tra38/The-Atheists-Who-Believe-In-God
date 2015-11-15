@@ -18,6 +18,7 @@ data = SmarterCSV.process('data/atheist_data.csv')
 def generate_character(args)
 	character_profile = Hash.new
 	character_profile[:name] = determine_name(args[:"sex"])
+	character_profile[:age] = determine_age(args[:age], args[:race])
 	character_profile[:personal_pronoun] = determine_pronoun(args[:"sex"])
 	character_profile[:possessive_pronoun] = determine_possessive_pronoun(args[:"sex"])
 	character_profile[:fake_faith] = [:simulationism,:pantheism,:karma,:alien].sample
@@ -43,8 +44,22 @@ def generate_character(args)
 	character_profile
 end
 
-puts data[2]
-hash = generate_character(data[2])
+date = Date.new(2007,06,01) 
 
-speech = Speech.new(hash)
-puts speech.text
+File.open("atheists.md", 'w') do |f|
+	data.each do |row|
+		speech = Speech.new(generate_character(row))
+		f << "###"+date.strftime('%a %b %d %Y')+"\n\n"
+		f << speech.text
+		date += 1
+	end
+end
+
+# hash = generate_character(data[0])
+# puts hash
+
+# puts data[2]
+# hash = generate_character(data[2])
+
+# speech = Speech.new(hash)
+# puts speech.text

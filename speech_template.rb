@@ -6,19 +6,22 @@ class Speech
 		@text << introduction
 		@text << why_is_the_character_delivering_the_speech
 		@text << experience_in_talking_to_theists
-		@text << "\n\n" + what_is_god
+		@text << angels_and_demons if args[:angels_and_demons]
+		@text << "\n\n#{what_is_god}"
+		@text << presence_of_divine_healing if args[:divine_healing]
 		@text << nature_of_god if args[:nature_of_god]
-		@text << view_of_bible if args[:view_of_bible]
+		@text << "\n\n#{view_of_bible}" if args[:view_of_bible]
+		@text << view_of_evolution if args[:evolution]
 		@text << life_after_death
-		@text << presence_of_miracles if args[:miracles]
+		@text << "\n\n#{presence_of_miracles}" if args[:miracles]
 		@text << clear_ethical_standards if args[:clear_ethical_standards]
+		@text << role_of_government if args[:morality_in_politics]
 		@text << "\n\n#{room_reaction}\n\n"
-		# @text << angels_and_demons
 		@text = @text.join(" ")
 	end
 
 	def introduction
-		"#{args[:name]} (#{args[:race]}#{args[:hispanic]} #{args[:wealth]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
+		"#{args[:name]} (#{args[:age]}#{args[:race]}#{args[:hispanic]} #{args[:wealth]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
 	end
 
 	def why_is_the_character_delivering_the_speech
@@ -34,7 +37,7 @@ class Speech
 
 	def diety_name
 		case args[:fake_faith]
-		when :simulation
+		when :simulationism
 			"the Unblinking Eye"
 		when :karma
 			"Karma"
@@ -48,7 +51,7 @@ class Speech
 	def what_is_god
 		if args[:moral_reasoning]
 			case args[:fake_faith]
-			when :simulation
+			when :simulationism
 				"#{args[:name]} used #{args[:moral_reasoning]} to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye."
 			when :karma
 				"#{args[:name]} used #{args[:moral_reasoning]} to make the claim that the universe is controlled by a magical force called 'Karma'."
@@ -116,15 +119,46 @@ class Speech
 		end
 	end
 
+	def view_of_evolution
+		case args[:evolution]
+		when :yes
+			"#{args[:name]} denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how #{diety_name} created humans."
+		when :no
+			"#{args[:name]} laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how #{diety_name} created humans."
+		end
+	end
+
+	def role_of_government
+		case args[:morality_in_politics]
+		when :government_should_promote_morality
+			"#{args[:name]} concluded #{args[:possessive_pronoun]} speech by imagining a new United States, one that would promote morality and serve as a shining example of #{diety_name}'s ideal vision of truth and justice. #{args[:personal_pronoun]} asked all theists to convert."
+		when :government_is_too_involved
+			"#{args[:name]} concluded #{args[:possessive_pronoun]} speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of #{diety_name}'s strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and #{diety_name} will simply watch and judge."
+		else
+			"#{args[:name]} concluded #{args[:possessive_pronoun]} speech by asking theists to convert to the one truth path and embrace secularism."
+		end
+	end
+
+
+	def presence_of_divine_healing
+		case args[:divine_healing]
+		when :yes
+			"To prove #{args[:possessive_pronoun]}'s point, #{args[:name]} described an example where #{args[:personal_pronoun]} personally witnessed #{diety_name} divinely healing someone."
+		end
+	end
+
 	def room_reaction
 		["The room remained silent, as the theists try to take into account what they have just heard.","The theists started to seriously consider #{args[:name]}'s message.","The theists started laughing at #{args[:name]}'s flawed theology.","The theists giggled, but still tried to pay their respects to the speaker.","The theists took notes."].sample
 	end
 
-	# def angels_and_demons
-	# 	case args[:angels_and_demons]
-	# 	when :yes
-	# 		"The room remained silent, with the theists justexcept for a small rasping noise. #{args[:name]} knew "
-	# 	end
+	def angels_and_demons
+		case args[:angels_and_demons]
+		when :yes
+			"As #{args[:name]} entered the church, #{args[:personal_pronoun]} heared a small rasping noise. #{args[:personal_pronoun].capitalize} knew it was because angels and demons are fighting each other, and ignored the noise."
+		when :no
+			"As #{args[:name]} entered the church, #{args[:personal_pronoun]} heared a small rasping noise. #{args[:personal_pronoun]} knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist)."
+		end
+	end
 
 	def clear_ethical_standards
 		case args[:clear_ethical_standards]
