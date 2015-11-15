@@ -18,7 +18,7 @@ Sumiko Baumbach used philosophy and reason to make the claim that the universe i
 
 Sumiko Baumbach then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Sumiko Baumbach laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Sumiko Baumbach concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Sumiko Baumbach's message.
+The theists pretended to listen to Sumiko Baumbach's message.
 
 ###Sun Jun 03 2007
 
@@ -50,7 +50,7 @@ Lyman Reilly used practical experience and common sense to point out that there 
 
  Lyman Reilly denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Lyman Reilly became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. Lyman Reilly concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
 
-The theists started to seriously consider Lyman Reilly's message.
+The theists pretended to listen to Lyman Reilly's message.
 
 ###Wed Jun 06 2007
 
@@ -134,7 +134,7 @@ Jordan Baumbach used practical experience and common sense to argue that the wor
 
 Jordan Baumbach then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Jordan Baumbach declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jordan Baumbach concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
 
-The theists started to seriously consider Jordan Baumbach's message.
+The theists pretended to listen to Jordan Baumbach's message.
 
 ###Wed Jun 13 2007
 
@@ -144,7 +144,7 @@ Emmanuel Dibbert used practical experience and common sense to point out that th
 
 Emmanuel Dibbert then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Emmanuel Dibbert declared that Alice strongly supports clear ethical standards that all humans must obey. Emmanuel Dibbert concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Emmanuel Dibbert's message.
+The theists pretended to listen to Emmanuel Dibbert's message.
 
 ###Thu Jun 14 2007
 
@@ -152,7 +152,7 @@ Malcolm Rempel (a 38-year-old White poor high school dropout) entered a church, 
 
 Malcolm Rempel used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Malcolm Rempel laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Malcolm Rempel declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Malcolm Rempel concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Malcolm Rempel's message.
+The theists pretended to listen to Malcolm Rempel's message.
 
 ###Fri Jun 15 2007
 
@@ -188,7 +188,7 @@ Claudio Dach used scientific information to point out that there is no such thin
 
 Claudio Dach then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Claudio Dach declared that Alice strongly supports clear ethical standards that all humans must obey. Claudio Dach concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
 
-The theists started to seriously consider Claudio Dach's message.
+The theists pretended to listen to Claudio Dach's message.
 
 ###Mon Jun 18 2007
 
@@ -200,7 +200,7 @@ Rufus Schuster used practical experience and common sense to suggest that everyo
 
 Rufus Schuster then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Rufus Schuster declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Rufus Schuster concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
-The theists started to seriously consider Rufus Schuster's message.
+The theists pretended to listen to Rufus Schuster's message.
 
 ###Tue Jun 19 2007
 
@@ -212,7 +212,7 @@ She then held out a personal copy of the Bible. This 'Bible' is the literal word
 
 Tandra O'Hara then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Tandra O'Hara declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Tandra O'Hara concluded her speech by asking theists to convert to the one truth path and embrace secularism. 
 
-The theists started to seriously consider Tandra O'Hara's message.
+The theists pretended to listen to Tandra O'Hara's message.
 
 ###Wed Jun 20 2007
 
@@ -224,7 +224,7 @@ Leonardo Bosco used practical experience and common sense to suggest that everyo
 
 Leonardo Bosco denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Leonardo Bosco declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Leonardo Bosco concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
-The theists started to seriously consider Leonardo Bosco's message.
+The theists pretended to listen to Leonardo Bosco's message.
 
 ###Thu Jun 21 2007
 
@@ -408,7 +408,7 @@ Enrique Kerluke used practical experience and common sense to make the claim tha
 
 Enrique Kerluke then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Enrique Kerluke declared that Karma strongly supports clear ethical standards that all humans must obey. Enrique Kerluke concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Enrique Kerluke's message.
+The theists pretended to listen to Enrique Kerluke's message.
 
 ###Sat Jul 07 2007
 
@@ -466,7 +466,7 @@ Reina Davis used philosophy and reason to point out that there is no such thing 
 
 Reina Davis then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Reina Davis laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Reina Davis concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Reina Davis's message.
+The theists pretended to listen to Reina Davis's message.
 
 ###Thu Jul 12 2007
 
@@ -562,7 +562,7 @@ Trey Ortiz used philosophy and reason to argue that the world is just one big si
 
 Trey Ortiz denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Trey Ortiz laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Trey Ortiz concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Trey Ortiz's message.
+The theists pretended to listen to Trey Ortiz's message.
 
 ###Fri Jul 20 2007
 
@@ -574,7 +574,7 @@ Issac Maggio used practical experience and common sense to suggest that everyone
 
 Issac Maggio denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Issac Maggio declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Issac Maggio concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
-The theists started to seriously consider Issac Maggio's message.
+The theists pretended to listen to Issac Maggio's message.
 
 ###Sat Jul 21 2007
 
@@ -598,7 +598,7 @@ He then held out a personal copy of the Bible. This 'Bible' came directly from t
 
 Kristopher Feil then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Kristopher Feil declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Kristopher Feil concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. he asked all theists to convert. 
 
-The theists started to seriously consider Kristopher Feil's message.
+The theists pretended to listen to Kristopher Feil's message.
 
 ###Mon Jul 23 2007
 
@@ -620,7 +620,7 @@ Van Brown used philosophy and reason to point out that there is no such thing as
 
 Van Brown denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Van Brown laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Van Brown concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Van Brown's message.
+The theists pretended to listen to Van Brown's message.
 
 ###Wed Jul 25 2007
 
@@ -734,7 +734,7 @@ Graham Thiel used philosophy and reason to point out that there is no such thing
 
 Graham Thiel denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Graham Thiel declared that Alice strongly supports clear ethical standards that all humans must obey. Graham Thiel concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Graham Thiel's message.
+The theists pretended to listen to Graham Thiel's message.
 
 ###Sat Aug 04 2007
 
@@ -758,7 +758,7 @@ Geraldo Volkman used scientific information to make the claim that the universe 
 
 Geraldo Volkman then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Geraldo Volkman laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Geraldo Volkman concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Geraldo Volkman's message.
+The theists pretended to listen to Geraldo Volkman's message.
 
 ###Mon Aug 06 2007
 
@@ -770,7 +770,7 @@ He then held out a personal copy of the Bible. This 'Bible' came directly from A
 
 Daren Lehner then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Daren Lehner declared that Alice strongly supports clear ethical standards that all humans must obey. Daren Lehner concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of Alice's ideal vision of truth and justice. he asked all theists to convert. 
 
-The theists started to seriously consider Daren Lehner's message.
+The theists pretended to listen to Daren Lehner's message.
 
 ###Tue Aug 07 2007
 
@@ -782,7 +782,7 @@ Jewell Cassin used practical experience and common sense to argue that the world
 
 Jewell Cassin denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Jewell Cassin declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jewell Cassin concluded his speech by imagining a new United States, one that would promote morality and serve as a shining example of the Unblinking Eye's ideal vision of truth and justice. he asked all theists to convert. 
 
-The theists started to seriously consider Jewell Cassin's message.
+The theists pretended to listen to Jewell Cassin's message.
 
 ###Wed Aug 08 2007
 
@@ -890,7 +890,7 @@ She then held out a personal copy of the Bible. This 'Bible' is the literal word
 
 Mitzi Schowalter then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Mitzi Schowalter declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Mitzi Schowalter concluded her speech by imagining a new United States, one that would promote morality and serve as a shining example of the Collective Consciousness's ideal vision of truth and justice. she asked all theists to convert. 
 
-The theists started to seriously consider Mitzi Schowalter's message.
+The theists pretended to listen to Mitzi Schowalter's message.
 
 ###Fri Aug 17 2007
 
@@ -1092,7 +1092,7 @@ Brain Bashirian used philosophy and reason to argue that the world is just one b
 
 Brain Bashirian denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Brain Bashirian declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Brain Bashirian concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Brain Bashirian's message.
+The theists pretended to listen to Brain Bashirian's message.
 
 ###Mon Sep 03 2007
 
@@ -1104,7 +1104,7 @@ He then held out a personal copy of the Bible. This 'Bible' came directly from K
 
 Ivory Cartwright then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Ivory Cartwright declared that Karma strongly supports clear ethical standards that all humans must obey. Ivory Cartwright concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Ivory Cartwright's message.
+The theists pretended to listen to Ivory Cartwright's message.
 
 ###Tue Sep 04 2007
 
@@ -1158,7 +1158,7 @@ Lucas Becker used practical experience and common sense to make the claim that t
 
  Lucas Becker denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Lucas Becker smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. Lucas Becker laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Lucas Becker concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Lucas Becker's message.
+The theists pretended to listen to Lucas Becker's message.
 
 ###Sun Sep 09 2007
 
@@ -1170,7 +1170,7 @@ Loan Balistreri used philosophy and reason to point out that there is no such th
 
 Loan Balistreri then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Loan Balistreri laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Loan Balistreri concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Loan Balistreri's message.
+The theists pretended to listen to Loan Balistreri's message.
 
 ###Mon Sep 10 2007
 
@@ -1202,7 +1202,7 @@ George Gusikowski used practical experience and common sense to point out that t
 
  George Gusikowski denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. George Gusikowski became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. George Gusikowski concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
 
-The theists started to seriously consider George Gusikowski's message.
+The theists pretended to listen to George Gusikowski's message.
 
 ###Thu Sep 13 2007
 
@@ -1226,7 +1226,7 @@ Jake Jacobi used practical experience and common sense to argue that the world i
 
 Jake Jacobi then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Jake Jacobi declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Jake Jacobi concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Jake Jacobi's message.
+The theists pretended to listen to Jake Jacobi's message.
 
 ###Sat Sep 15 2007
 
@@ -1328,7 +1328,7 @@ Shirlee Cartwright outright claimed to make the claim that the universe is contr
 
 Shirlee Cartwright denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Shirlee Cartwright declared that Karma strongly supports clear ethical standards that all humans must obey. Shirlee Cartwright concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Shirlee Cartwright's message.
+The theists pretended to listen to Shirlee Cartwright's message.
 
 ###Mon Sep 24 2007
 
@@ -1352,7 +1352,7 @@ Rosario Glover used practical experience and common sense to suggest that everyo
 
 Rosario Glover then explained in depth how the Collective Consciousness is able to break scientific laws from time to time, causing 'miracles'. Rosario Glover declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Rosario Glover concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
-The theists started to seriously consider Rosario Glover's message.
+The theists pretended to listen to Rosario Glover's message.
 
 ###Wed Sep 26 2007
 
@@ -1444,7 +1444,7 @@ Gabriel Keebler used practical experience and common sense to point out that the
 
 Gabriel Keebler denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Gabriel Keebler laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Gabriel Keebler concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Gabriel Keebler's message.
+The theists pretended to listen to Gabriel Keebler's message.
 
 ###Thu Oct 04 2007
 
@@ -1468,7 +1468,7 @@ Jean Rolfson used practical experience and common sense to make the claim that t
 
 Jean Rolfson denounced the concept of miracles in the present day, claiming that Karma would never wish to break scientific laws. Jean Rolfson declared that Karma strongly supports clear ethical standards that all humans must obey. Jean Rolfson concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Jean Rolfson's message.
+The theists pretended to listen to Jean Rolfson's message.
 
 ###Sat Oct 06 2007
 
@@ -1488,7 +1488,7 @@ Melina Hodkiewicz (an Asian academic) entered a church, ready to deliver a speec
 
 Melina Hodkiewicz outright claimed to make the claim that the universe is controlled by a magical force called 'Karma'.  Melina Hodkiewicz argued that Karma was a personal, physical being that humans can relate to and communicate with. Melina Hodkiewicz denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Melina Hodkiewicz laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Melina Hodkiewicz laughed at the idea of 'clear ethical standards'; Karma supports ethical relativism in all affairs. Melina Hodkiewicz concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Melina Hodkiewicz's message.
+The theists pretended to listen to Melina Hodkiewicz's message.
 
 ###Mon Oct 08 2007
 
@@ -1524,7 +1524,7 @@ Samuel McKenzie used philosophy and reason to point out that there is no such th
 
 Samuel McKenzie denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Samuel McKenzie declared that Alice strongly supports clear ethical standards that all humans must obey. Samuel McKenzie concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Samuel McKenzie's message.
+The theists pretended to listen to Samuel McKenzie's message.
 
 ###Thu Oct 11 2007
 
@@ -1548,7 +1548,7 @@ Monty Hamill used scientific information to point out that there is no such thin
 
 Monty Hamill denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Monty Hamill declared that Alice strongly supports clear ethical standards that all humans must obey. Monty Hamill concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Monty Hamill's message.
+The theists pretended to listen to Monty Hamill's message.
 
 ###Sat Oct 13 2007
 
@@ -1594,7 +1594,7 @@ Erick Bailey used scientific information to make the claim that the universe is 
 
 Erick Bailey then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Erick Bailey declared that Karma strongly supports clear ethical standards that all humans must obey. Erick Bailey concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Erick Bailey's message.
+The theists pretended to listen to Erick Bailey's message.
 
 ###Wed Oct 17 2007
 
@@ -1618,7 +1618,7 @@ Wilma Luettgen used philosophy and reason to argue that the world is just one bi
 
 Wilma Luettgen then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Wilma Luettgen laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Wilma Luettgen concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Wilma Luettgen's message.
+The theists pretended to listen to Wilma Luettgen's message.
 
 ###Fri Oct 19 2007
 
@@ -1630,7 +1630,7 @@ Reynaldo Dickens used scientific information to suggest that everyone is part of
 
 Reynaldo Dickens denounced the concept of miracles in the present day, claiming that the Collective Consciousness would never wish to break scientific laws. Reynaldo Dickens declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Reynaldo Dickens concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
-The theists started to seriously consider Reynaldo Dickens's message.
+The theists pretended to listen to Reynaldo Dickens's message.
 
 ###Sat Oct 20 2007
 
@@ -1678,7 +1678,7 @@ Rubin Ledner used scientific information to point out that there is no such thin
 
 Rubin Ledner then explained in depth how Alice is able to break scientific laws from time to time, causing 'miracles'. Rubin Ledner declared that Alice strongly supports clear ethical standards that all humans must obey. Rubin Ledner concluded his speech by asking theists to convert to the one truth path and embrace secularism. 
 
-The theists started to seriously consider Rubin Ledner's message.
+The theists pretended to listen to Rubin Ledner's message.
 
 ###Wed Oct 24 2007
 
@@ -1840,7 +1840,7 @@ She then held out a personal copy of the Bible. This 'Bible' came directly from 
 
 Dorinda Farrell denounced the concept of miracles in the present day, claiming that the Unblinking Eye would never wish to break scientific laws. Dorinda Farrell declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Dorinda Farrell concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Dorinda Farrell's message.
+The theists pretended to listen to Dorinda Farrell's message.
 
 ###Wed Nov 07 2007
 
@@ -1852,7 +1852,7 @@ Mui Smitham used scientific information to make the claim that the universe is c
 
 Mui Smitham then explained in depth how Karma is able to break scientific laws from time to time, causing 'miracles'. Mui Smitham declared that Karma strongly supports clear ethical standards that all humans must obey. Mui Smitham concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Karma's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Karma will simply watch and judge. 
 
-The theists started to seriously consider Mui Smitham's message.
+The theists pretended to listen to Mui Smitham's message.
 
 ###Thu Nov 08 2007
 
@@ -1910,7 +1910,7 @@ Wilford Hermiston used scientific information to argue that the world is just on
 
 Wilford Hermiston then explained in depth how the Unblinking Eye is able to break scientific laws from time to time, causing 'miracles'. Wilford Hermiston laughed at the idea of 'clear ethical standards'; the Unblinking Eye supports ethical relativism in all affairs. Wilford Hermiston concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
-The theists started to seriously consider Wilford Hermiston's message.
+The theists pretended to listen to Wilford Hermiston's message.
 
 ###Tue Nov 13 2007
 
@@ -2138,7 +2138,7 @@ Chelsea Schaden used practical experience and common sense to point out that the
 
 Chelsea Schaden denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Chelsea Schaden laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Chelsea Schaden concluded her speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Chelsea Schaden's message.
+The theists pretended to listen to Chelsea Schaden's message.
 
 ###Sun Dec 02 2007
 
@@ -2150,7 +2150,7 @@ Kendall Dickens used practical experience and common sense to point out that the
 
 Kendall Dickens denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Kendall Dickens laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Kendall Dickens concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Kendall Dickens's message.
+The theists pretended to listen to Kendall Dickens's message.
 
 ###Mon Dec 03 2007
 
@@ -2232,7 +2232,7 @@ Fredrick Aufderhar used philosophy and reason to point out that there is no such
 
 Fredrick Aufderhar denounced the concept of miracles in the present day, claiming that Alice would never wish to break scientific laws. Fredrick Aufderhar laughed at the idea of 'clear ethical standards'; Alice supports ethical relativism in all affairs. Fredrick Aufderhar concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of Alice's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and Alice will simply watch and judge. 
 
-The theists started to seriously consider Fredrick Aufderhar's message.
+The theists pretended to listen to Fredrick Aufderhar's message.
 
 ###Mon Dec 10 2007
 

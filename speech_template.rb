@@ -148,7 +148,7 @@ class Speech
 	end
 
 	def room_reaction
-		["The room remained silent, as the theists try to take into account what they have just heard.","The theists started to seriously consider #{args[:name]}'s message.","The theists started laughing at #{args[:name]}'s flawed theology.","The theists giggled, but still tried to pay their respects to the speaker.","The theists took notes."].sample
+		["The room remained silent, as the theists try to take into account what they have just heard.","The theists pretended to listen to #{args[:name]}'s message.","The theists started laughing at #{args[:name]}'s flawed theology.","The theists giggled, but still tried to pay their respects to the speaker.","The theists took notes."].sample
 	end
 
 	def angels_and_demons
