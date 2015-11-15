@@ -21,7 +21,7 @@ class Speech
 	end
 
 	def introduction
-		"#{args[:name]} (#{args[:age]}#{args[:race]}#{args[:hispanic]} #{args[:wealth]} #{args[:education]}) entered a church, ready to deliver a speech to religious people."
+		"#{args[:name]} (#{args[:age]}#{args[:race]}#{args[:hispanic]} #{args[:wealth]}#{args[:education]}) entered a church, ready to deliver a speech to religious people."
 	end
 
 	def why_is_the_character_delivering_the_speech

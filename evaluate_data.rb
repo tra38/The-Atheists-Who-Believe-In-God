@@ -287,11 +287,11 @@ end
 def determine_wealth(wealth_data)
 	case
 	when (wealth_data <= 4) 
-		"poor"
+		"poor "
 	when (wealth_data <= 6)
-		"middle-class"
+		"middle-class "
 	when (wealth_data <= 9)
-		"wealthy"
+		"wealthy "
 	else
 		""
 	end
