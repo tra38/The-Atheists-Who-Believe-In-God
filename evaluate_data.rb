@@ -19,9 +19,9 @@ end
 def determine_race(race_data) #What is your race?
 	case race_data
 	when 1
-		race = "White"
+		race = "white"
 	when 2
-		race = "Black"
+		race = "black"
 	when 3
 		race = "Asian"
 	when 4
