@@ -1,6 +1,6 @@
 ###Fri Jun 01 2007
 
-Tommy VonRueden (a 37-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Tommy VonRueden meditated to relieve stress and to calm his nerves. 
+Tommy VonRueden (a 37-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Tommy VonRueden meditated to relieve stress and to calm his nerves. 
 
 Tommy VonRueden used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Tommy VonRueden argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -10,7 +10,7 @@ The theists started laughing at Tommy VonRueden's flawed theology.
 
 ###Sat Jun 02 2007
 
-Sumiko Baumbach (a 45-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sumiko Baumbach sometimes preached her views to theists, but still felt afraid. Sumiko Baumbach uttered a quick prayer to Karma to calm her nerves. As Sumiko Baumbach entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Sumiko Baumbach (a 45-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sumiko Baumbach sometimes preached her views to theists, but still felt afraid. Sumiko Baumbach uttered a quick prayer to Karma to calm her nerves. As Sumiko Baumbach entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Sumiko Baumbach used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Sumiko Baumbach argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -22,7 +22,7 @@ The theists pretended to listen to Sumiko Baumbach's message.
 
 ###Sun Jun 03 2007
 
-Brittany Klein (a 48-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Brittany Klein had never preached her views to theists before, and freaked out. Brittany Klein uttered a quick prayer to Karma to calm her nerves. As Brittany Klein entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Brittany Klein (a 48-year-old white poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Brittany Klein had never preached her views to theists before, and freaked out. Brittany Klein uttered a quick prayer to Karma to calm her nerves. As Brittany Klein entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Brittany Klein used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Brittany Klein argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -34,7 +34,7 @@ The theists started laughing at Brittany Klein's flawed theology.
 
 ###Mon Jun 04 2007
 
-Barney Schaden (a 81-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Barney Schaden sometimes preached his views to theists, but still felt afraid. Barney Schaden meditated to relieve stress and to calm his nerves. 
+Barney Schaden (a 81-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Barney Schaden sometimes preached his views to theists, but still felt afraid. Barney Schaden meditated to relieve stress and to calm his nerves. 
 
 Barney Schaden used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. 
 
@@ -44,7 +44,7 @@ The theists started laughing at Barney Schaden's flawed theology.
 
 ###Tue Jun 05 2007
 
-Lyman Reilly (a 31-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lyman Reilly had never preached his views to theists before, and freaked out. Lyman Reilly thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Lyman Reilly entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Lyman Reilly (a 31-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lyman Reilly had never preached his views to theists before, and freaked out. Lyman Reilly thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Lyman Reilly entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Lyman Reilly used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Lyman Reilly argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -54,7 +54,7 @@ The theists pretended to listen to Lyman Reilly's message.
 
 ###Wed Jun 06 2007
 
-Zachary Weber (a 39-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zachary Weber had never preached his views to theists before, and freaked out. Zachary Weber uttered a quick prayer to the Unblinking Eye to calm his nerves. As Zachary Weber entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Zachary Weber (a 39-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zachary Weber had never preached his views to theists before, and freaked out. Zachary Weber uttered a quick prayer to the Unblinking Eye to calm his nerves. As Zachary Weber entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Zachary Weber used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Zachary Weber argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -66,7 +66,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Jun 07 2007
 
-Garrett Olson (a 22-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Garrett Olson had never preached his views to theists before, and freaked out. Garrett Olson uttered a quick prayer to the Collective Consciousness to calm his nerves. As Garrett Olson entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Garrett Olson (a 22-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Garrett Olson had never preached his views to theists before, and freaked out. Garrett Olson uttered a quick prayer to the Collective Consciousness to calm his nerves. As Garrett Olson entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Garrett Olson used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Garrett Olson argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
 
@@ -78,7 +78,7 @@ The theists took notes.
 
 ###Fri Jun 08 2007
 
-Lon Reinger (a 18-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lon Reinger had never preached his views to theists before, and freaked out. Lon Reinger slowly breathed in and out to calm his nerves. As Lon Reinger entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Lon Reinger (a 18-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lon Reinger had never preached his views to theists before, and freaked out. Lon Reinger slowly breathed in and out to calm his nerves. As Lon Reinger entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Lon Reinger used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Lon Reinger argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -90,7 +90,7 @@ The theists started laughing at Lon Reinger's flawed theology.
 
 ###Sat Jun 09 2007
 
-Drusilla Hermiston (a 52-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Drusilla Hermiston sometimes preached her views to theists, but still felt afraid. Drusilla Hermiston meditated to relieve stress and to calm her nerves. As Drusilla Hermiston entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Drusilla Hermiston (a 52-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Drusilla Hermiston sometimes preached her views to theists, but still felt afraid. Drusilla Hermiston meditated to relieve stress and to calm her nerves. As Drusilla Hermiston entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Drusilla Hermiston used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Drusilla Hermiston argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -102,7 +102,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Jun 10 2007
 
-Marlene Wolff (a 55-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marlene Wolff had extensive experience in preaching her views to theists. She was not afraid. As Marlene Wolff entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Marlene Wolff (a 55-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marlene Wolff had extensive experience in preaching her views to theists. She was not afraid. As Marlene Wolff entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Marlene Wolff used religious teachings and beliefs to make the claim that the universe is controlled by a magical force called 'Karma'.  Marlene Wolff argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -114,7 +114,7 @@ The theists started laughing at Marlene Wolff's flawed theology.
 
 ###Mon Jun 11 2007
 
-Mike Goodwin (a 22-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Mike Goodwin had never preached his views to theists before, and freaked out. Mike Goodwin slowly breathed in and out to calm his nerves. As Mike Goodwin entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Mike Goodwin (a 22-year-old white middle-class college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Mike Goodwin had never preached his views to theists before, and freaked out. Mike Goodwin slowly breathed in and out to calm his nerves. As Mike Goodwin entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Mike Goodwin used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Mike Goodwin argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -126,7 +126,7 @@ The theists started laughing at Mike Goodwin's flawed theology.
 
 ###Tue Jun 12 2007
 
-Jordan Baumbach (a 62-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jordan Baumbach sometimes preached his views to theists, but still felt afraid. Jordan Baumbach thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Jordan Baumbach entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Jordan Baumbach (a 62-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jordan Baumbach sometimes preached his views to theists, but still felt afraid. Jordan Baumbach thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Jordan Baumbach entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Jordan Baumbach used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  
 
@@ -138,7 +138,7 @@ The theists pretended to listen to Jordan Baumbach's message.
 
 ###Wed Jun 13 2007
 
-Emmanuel Dibbert (a 33-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Emmanuel Dibbert sometimes preached his views to theists, but still felt afraid. Emmanuel Dibbert uttered a quick prayer to Alice to calm his nerves. As Emmanuel Dibbert entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Emmanuel Dibbert (a 33-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Emmanuel Dibbert sometimes preached his views to theists, but still felt afraid. Emmanuel Dibbert uttered a quick prayer to Alice to calm his nerves. As Emmanuel Dibbert entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Emmanuel Dibbert used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove his's point, Emmanuel Dibbert described an example where he personally witnessed Alice divinely healing someone. Emmanuel Dibbert argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Emmanuel Dibbert denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Emmanuel Dibbert smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -148,7 +148,7 @@ The theists pretended to listen to Emmanuel Dibbert's message.
 
 ###Thu Jun 14 2007
 
-Malcolm Rempel (a 38-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Malcolm Rempel had never preached his views to theists before, and freaked out. Malcolm Rempel slowly breathed in and out to calm his nerves. 
+Malcolm Rempel (a 38-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Malcolm Rempel had never preached his views to theists before, and freaked out. Malcolm Rempel slowly breathed in and out to calm his nerves. 
 
 Malcolm Rempel used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Malcolm Rempel laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Malcolm Rempel declared that the Unblinking Eye strongly supports clear ethical standards that all humans must obey. Malcolm Rempel concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Unblinking Eye's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Unblinking Eye will simply watch and judge. 
 
@@ -156,7 +156,7 @@ The theists pretended to listen to Malcolm Rempel's message.
 
 ###Fri Jun 15 2007
 
-Francis Dickinson (a 56-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Francis Dickinson slowly breathed in and out to calm her nerves. As Francis Dickinson entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Francis Dickinson (a 56-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Francis Dickinson slowly breathed in and out to calm her nerves. As Francis Dickinson entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Francis Dickinson used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
 
@@ -180,7 +180,7 @@ The theists started laughing at Glory Turcotte's flawed theology.
 
 ###Sun Jun 17 2007
 
-Claudio Dach (a 18-year-old Black middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Claudio Dach had extensive experience in preaching his views to theists. He was not afraid. As Claudio Dach entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Claudio Dach (a 18-year-old black middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Claudio Dach had extensive experience in preaching his views to theists. He was not afraid. As Claudio Dach entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Claudio Dach used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Claudio Dach argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -204,7 +204,7 @@ The theists pretended to listen to Rufus Schuster's message.
 
 ###Tue Jun 19 2007
 
-Tandra O'Hara (a 79-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tandra O'Hara had never preached her views to theists before, and freaked out. Tandra O'Hara thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Tandra O'Hara entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Tandra O'Hara (a 79-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tandra O'Hara had never preached her views to theists before, and freaked out. Tandra O'Hara thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Tandra O'Hara entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Tandra O'Hara used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Tandra O'Hara argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -216,7 +216,7 @@ The theists pretended to listen to Tandra O'Hara's message.
 
 ###Wed Jun 20 2007
 
-Leonardo Bosco (a 19-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Leonardo Bosco had extensive experience in preaching his views to theists. He was not afraid. As Leonardo Bosco entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Leonardo Bosco (a 19-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Leonardo Bosco had extensive experience in preaching his views to theists. He was not afraid. As Leonardo Bosco entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Leonardo Bosco used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Leonardo Bosco argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -238,7 +238,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Fri Jun 22 2007
 
-Roy Jacobi (a 24-year-old Black high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Roy Jacobi sometimes preached his views to theists, but still felt afraid. Roy Jacobi meditated to relieve stress and to calm his nerves. As Roy Jacobi entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Roy Jacobi (a 24-year-old black high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Roy Jacobi sometimes preached his views to theists, but still felt afraid. Roy Jacobi meditated to relieve stress and to calm his nerves. As Roy Jacobi entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Roy Jacobi used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Roy Jacobi argued that Alice was a personal, physical being that humans can relate to and communicate with. Roy Jacobi denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Roy Jacobi attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
 
@@ -248,7 +248,7 @@ The theists took notes.
 
 ###Sat Jun 23 2007
 
-Leif Kuphal (a 21-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Leif Kuphal had extensive experience in preaching his views to theists. He was not afraid. As Leif Kuphal entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Leif Kuphal (a 21-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Leif Kuphal had extensive experience in preaching his views to theists. He was not afraid. As Leif Kuphal entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Leif Kuphal used religious teachings and beliefs to suggest that everyone is part of one Collective Consciousness.  Leif Kuphal argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -260,7 +260,7 @@ The theists took notes.
 
 ###Sun Jun 24 2007
 
-Maria Stracke (a 23-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maria Stracke had extensive experience in preaching his views to theists. He was not afraid. As Maria Stracke entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Maria Stracke (a 23-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maria Stracke had extensive experience in preaching his views to theists. He was not afraid. As Maria Stracke entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Maria Stracke used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Maria Stracke argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -272,7 +272,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Mon Jun 25 2007
 
-Chas Schmidt (a 54-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chas Schmidt had extensive experience in preaching his views to theists. He was not afraid. As Chas Schmidt entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Chas Schmidt (a 54-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chas Schmidt had extensive experience in preaching his views to theists. He was not afraid. As Chas Schmidt entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Chas Schmidt used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Chas Schmidt argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -284,7 +284,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Jun 26 2007
 
-Wendell Bartell (a 36-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wendell Bartell had never preached his views to theists before, and freaked out. Wendell Bartell slowly breathed in and out to calm his nerves. As Wendell Bartell entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Wendell Bartell (a 36-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wendell Bartell had never preached his views to theists before, and freaked out. Wendell Bartell slowly breathed in and out to calm his nerves. As Wendell Bartell entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Wendell Bartell used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Wendell Bartell argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -296,7 +296,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Wed Jun 27 2007
 
-Herb Reilly (a 43-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Herb Reilly had extensive experience in preaching his views to theists. He was not afraid. As Herb Reilly entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Herb Reilly (a 43-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Herb Reilly had extensive experience in preaching his views to theists. He was not afraid. As Herb Reilly entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Herb Reilly used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Herb Reilly argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -308,7 +308,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Thu Jun 28 2007
 
-Maria Ziemann (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maria Ziemann had never preached her views to theists before, and freaked out. Maria Ziemann thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. As Maria Ziemann entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Maria Ziemann (a 53-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maria Ziemann had never preached her views to theists before, and freaked out. Maria Ziemann thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. As Maria Ziemann entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Maria Ziemann used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Maria Ziemann argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -352,7 +352,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Mon Jul 02 2007
 
-Porfirio Bernhard (a 36-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Porfirio Bernhard had never preached his views to theists before, and freaked out. Porfirio Bernhard thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Porfirio Bernhard entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Porfirio Bernhard (a 36-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Porfirio Bernhard had never preached his views to theists before, and freaked out. Porfirio Bernhard thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Porfirio Bernhard entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Porfirio Bernhard used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Porfirio Bernhard argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -364,7 +364,7 @@ The theists took notes.
 
 ###Tue Jul 03 2007
 
-Bennett Hessel (a 31-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Bennett Hessel had never preached his views to theists before, and freaked out. Bennett Hessel thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Bennett Hessel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Bennett Hessel (a 31-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Bennett Hessel had never preached his views to theists before, and freaked out. Bennett Hessel thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Bennett Hessel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Bennett Hessel used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Bennett Hessel argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -376,7 +376,7 @@ The theists started laughing at Bennett Hessel's flawed theology.
 
 ###Wed Jul 04 2007
 
-Reid Kreiger (a 22-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Reid Kreiger sometimes preached his views to theists, but still felt afraid. Reid Kreiger meditated to relieve stress and to calm his nerves. As Reid Kreiger entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Reid Kreiger (a 22-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Reid Kreiger sometimes preached his views to theists, but still felt afraid. Reid Kreiger meditated to relieve stress and to calm his nerves. As Reid Kreiger entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Reid Kreiger used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Reid Kreiger argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -388,7 +388,7 @@ The theists started laughing at Reid Kreiger's flawed theology.
 
 ###Thu Jul 05 2007
 
-Russel Koch (a 34-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Russel Koch had extensive experience in preaching his views to theists. He was not afraid. As Russel Koch entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Russel Koch (a 34-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Russel Koch had extensive experience in preaching his views to theists. He was not afraid. As Russel Koch entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Russel Koch used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Russel Koch argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -400,7 +400,7 @@ The theists started laughing at Russel Koch's flawed theology.
 
 ###Fri Jul 06 2007
 
-Enrique Kerluke (a 53-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Enrique Kerluke sometimes preached his views to theists, but still felt afraid. Enrique Kerluke thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Enrique Kerluke entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Enrique Kerluke (a 53-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Enrique Kerluke sometimes preached his views to theists, but still felt afraid. Enrique Kerluke thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Enrique Kerluke entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Enrique Kerluke used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Enrique Kerluke argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -412,7 +412,7 @@ The theists pretended to listen to Enrique Kerluke's message.
 
 ###Sat Jul 07 2007
 
-Grace Hirthe (a 27-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grace Hirthe had never preached her views to theists before, and freaked out. Grace Hirthe slowly breathed in and out to calm her nerves. As Grace Hirthe entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Grace Hirthe (a 27-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grace Hirthe had never preached her views to theists before, and freaked out. Grace Hirthe slowly breathed in and out to calm her nerves. As Grace Hirthe entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Grace Hirthe used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
 
@@ -434,7 +434,7 @@ The theists took notes.
 
 ###Mon Jul 09 2007
 
-Corey Kuphal (a 38-year-old White college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Corey Kuphal sometimes preached his views to theists, but still felt afraid. Corey Kuphal thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Corey Kuphal entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Corey Kuphal (a 38-year-old white college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Corey Kuphal sometimes preached his views to theists, but still felt afraid. Corey Kuphal thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Corey Kuphal entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Corey Kuphal used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Corey Kuphal argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -458,7 +458,7 @@ The theists started laughing at Doria Balistreri's flawed theology.
 
 ###Wed Jul 11 2007
 
-Reina Davis (a 37-year-old White middle-class college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Reina Davis had never preached her views to theists before, and freaked out. Reina Davis uttered a quick prayer to Alice to calm her nerves. As Reina Davis entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Reina Davis (a 37-year-old white middle-class college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Reina Davis had never preached her views to theists before, and freaked out. Reina Davis uttered a quick prayer to Alice to calm her nerves. As Reina Davis entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Reina Davis used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Reina Davis described an example where she personally witnessed Alice divinely healing someone. Reina Davis argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -482,7 +482,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Jul 13 2007
 
-Nguyet Goyette (a 70-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Nguyet Goyette sometimes preached her views to theists, but still felt afraid. Nguyet Goyette thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. As Nguyet Goyette entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Nguyet Goyette (a 70-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Nguyet Goyette sometimes preached her views to theists, but still felt afraid. Nguyet Goyette thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. As Nguyet Goyette entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Nguyet Goyette used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
 
@@ -494,7 +494,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sat Jul 14 2007
 
-Chauncey Kozey (a 45-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chauncey Kozey sometimes preached his views to theists, but still felt afraid. Chauncey Kozey meditated to relieve stress and to calm his nerves. As Chauncey Kozey entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Chauncey Kozey (a 45-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chauncey Kozey sometimes preached his views to theists, but still felt afraid. Chauncey Kozey meditated to relieve stress and to calm his nerves. As Chauncey Kozey entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
   
 
@@ -506,7 +506,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sun Jul 15 2007
 
-Farah Weimann (a 81-year-old Black poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Farah Weimann sometimes preached her views to theists, but still felt afraid. Farah Weimann thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Farah Weimann entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Farah Weimann (a 81-year-old black poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Farah Weimann sometimes preached her views to theists, but still felt afraid. Farah Weimann thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Farah Weimann entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Farah Weimann used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Farah Weimann argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -518,7 +518,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Mon Jul 16 2007
 
-Rich Kuhn (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rich Kuhn had never preached his views to theists before, and freaked out. Rich Kuhn thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Rich Kuhn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Rich Kuhn (a 25-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rich Kuhn had never preached his views to theists before, and freaked out. Rich Kuhn thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Rich Kuhn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Rich Kuhn used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Rich Kuhn argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -530,7 +530,7 @@ The theists started laughing at Rich Kuhn's flawed theology.
 
 ###Tue Jul 17 2007
 
-Jorge Ortiz (a 19-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Jorge Ortiz had extensive experience in preaching his views to theists. He was not afraid. As Jorge Ortiz entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Jorge Ortiz (a 19-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Jorge Ortiz had extensive experience in preaching his views to theists. He was not afraid. As Jorge Ortiz entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Jorge Ortiz used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jorge Ortiz argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -542,7 +542,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Wed Jul 18 2007
 
-Chassidy Wolf (a 55-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chassidy Wolf uttered a quick prayer to Karma to calm her nerves. 
+Chassidy Wolf (a 55-year-old white middle-class college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Chassidy Wolf uttered a quick prayer to Karma to calm her nerves. 
 
 Chassidy Wolf outright claimed to make the claim that the universe is controlled by a magical force called 'Karma'. Chassidy Wolf argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -554,7 +554,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Jul 19 2007
 
-Trey Ortiz (a 74-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Trey Ortiz had never preached his views to theists before, and freaked out. Trey Ortiz slowly breathed in and out to calm his nerves. As Trey Ortiz entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Trey Ortiz (a 74-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Trey Ortiz had never preached his views to theists before, and freaked out. Trey Ortiz slowly breathed in and out to calm his nerves. As Trey Ortiz entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Trey Ortiz used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Trey Ortiz argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -566,7 +566,7 @@ The theists pretended to listen to Trey Ortiz's message.
 
 ###Fri Jul 20 2007
 
-Issac Maggio (a 64-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Issac Maggio sometimes preached his views to theists, but still felt afraid. Issac Maggio thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Issac Maggio entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Issac Maggio (a 64-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Issac Maggio sometimes preached his views to theists, but still felt afraid. Issac Maggio thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Issac Maggio entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Issac Maggio used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  
 
@@ -578,7 +578,7 @@ The theists pretended to listen to Issac Maggio's message.
 
 ###Sat Jul 21 2007
 
-Irina Feil (a 78-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Irina Feil sometimes preached her views to theists, but still felt afraid. Irina Feil meditated to relieve stress and to calm her nerves. As Irina Feil entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Irina Feil (a 78-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Irina Feil sometimes preached her views to theists, but still felt afraid. Irina Feil meditated to relieve stress and to calm her nerves. As Irina Feil entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Irina Feil used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
 
@@ -590,7 +590,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sun Jul 22 2007
 
-Kristopher Feil (a 21-year-old Black college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kristopher Feil had never preached his views to theists before, and freaked out. Kristopher Feil slowly breathed in and out to calm his nerves. As Kristopher Feil entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Kristopher Feil (a 21-year-old black college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kristopher Feil had never preached his views to theists before, and freaked out. Kristopher Feil slowly breathed in and out to calm his nerves. As Kristopher Feil entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Kristopher Feil used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Kristopher Feil argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -612,7 +612,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Jul 24 2007
 
-Van Brown (a 27-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Van Brown had never preached his views to theists before, and freaked out. Van Brown thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Van Brown entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Van Brown (a 27-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Van Brown had never preached his views to theists before, and freaked out. Van Brown thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Van Brown entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Van Brown used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Van Brown argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -624,7 +624,7 @@ The theists pretended to listen to Van Brown's message.
 
 ###Wed Jul 25 2007
 
-Janis Terry (a 51-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Janis Terry had never preached her views to theists before, and freaked out. Janis Terry slowly breathed in and out to calm her nerves. As Janis Terry entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Janis Terry (a 51-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Janis Terry had never preached her views to theists before, and freaked out. Janis Terry slowly breathed in and out to calm her nerves. As Janis Terry entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Janis Terry used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Janis Terry argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -636,7 +636,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Thu Jul 26 2007
 
-Clark Howe (a 41-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Clark Howe sometimes preached his views to theists, but still felt afraid. Clark Howe meditated to relieve stress and to calm his nerves. As Clark Howe entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Clark Howe (a 41-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Clark Howe sometimes preached his views to theists, but still felt afraid. Clark Howe meditated to relieve stress and to calm his nerves. As Clark Howe entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Clark Howe used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Clark Howe argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Clark Howe denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Clark Howe attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
 
@@ -646,7 +646,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Jul 27 2007
 
-Lupe Mosciski (a 48-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lupe Mosciski sometimes preached his views to theists, but still felt afraid. Lupe Mosciski thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Lupe Mosciski entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Lupe Mosciski (a 48-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lupe Mosciski sometimes preached his views to theists, but still felt afraid. Lupe Mosciski thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Lupe Mosciski entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Lupe Mosciski used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Lupe Mosciski argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -658,7 +658,7 @@ The theists took notes.
 
 ###Sat Jul 28 2007
 
-Nolan DuBuque (a 39-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Nolan DuBuque sometimes preached his views to theists, but still felt afraid. Nolan DuBuque uttered a quick prayer to the Collective Consciousness to calm his nerves. As Nolan DuBuque entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Nolan DuBuque (a 39-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Nolan DuBuque sometimes preached his views to theists, but still felt afraid. Nolan DuBuque uttered a quick prayer to the Collective Consciousness to calm his nerves. As Nolan DuBuque entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Nolan DuBuque used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Nolan DuBuque argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -680,7 +680,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Mon Jul 30 2007
 
-Raisa Gerlach (a 61-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Raisa Gerlach had extensive experience in preaching her views to theists. She was not afraid. As Raisa Gerlach entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Raisa Gerlach (a 61-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Raisa Gerlach had extensive experience in preaching her views to theists. She was not afraid. As Raisa Gerlach entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Raisa Gerlach used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Raisa Gerlach argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -692,7 +692,7 @@ The theists took notes.
 
 ###Tue Jul 31 2007
 
-Jennell Hagenes (a 22-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jennell Hagenes sometimes preached her views to theists, but still felt afraid. Jennell Hagenes slowly breathed in and out to calm her nerves. As Jennell Hagenes entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Jennell Hagenes (a 22-year-old white poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jennell Hagenes sometimes preached her views to theists, but still felt afraid. Jennell Hagenes slowly breathed in and out to calm her nerves. As Jennell Hagenes entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Jennell Hagenes used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Jennell Hagenes argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -704,7 +704,7 @@ The theists started laughing at Jennell Hagenes's flawed theology.
 
 ###Wed Aug 01 2007
 
-Fransisca Wiegand (a White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Fransisca Wiegand had never preached her views to theists before, and freaked out. Fransisca Wiegand uttered a quick prayer to Karma to calm her nerves. As Fransisca Wiegand entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Fransisca Wiegand (a white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Fransisca Wiegand had never preached her views to theists before, and freaked out. Fransisca Wiegand uttered a quick prayer to Karma to calm her nerves. As Fransisca Wiegand entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Fransisca Wiegand used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Fransisca Wiegand denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Fransisca Wiegand smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -714,7 +714,7 @@ The theists started laughing at Fransisca Wiegand's flawed theology.
 
 ###Thu Aug 02 2007
 
-Wally Robel (a 19-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wally Robel uttered a quick prayer to Karma to calm his nerves. As Wally Robel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Wally Robel (a 19-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wally Robel uttered a quick prayer to Karma to calm his nerves. As Wally Robel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Wally Robel outright claimed to make the claim that the universe is controlled by a magical force called 'Karma'.  Wally Robel argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -726,7 +726,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Fri Aug 03 2007
 
-Graham Thiel (a 38-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Graham Thiel had extensive experience in preaching his views to theists. He was not afraid. As Graham Thiel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Graham Thiel (a 38-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Graham Thiel had extensive experience in preaching his views to theists. He was not afraid. As Graham Thiel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Graham Thiel used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Graham Thiel argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -738,7 +738,7 @@ The theists pretended to listen to Graham Thiel's message.
 
 ###Sat Aug 04 2007
 
-Neville Glover (a 62-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Neville Glover had never preached his views to theists before, and freaked out. Neville Glover thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Neville Glover entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Neville Glover (a 62-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Neville Glover had never preached his views to theists before, and freaked out. Neville Glover thought about praying to Karma, but decided that he he can handle this situation on his own and id not need to pray just yet. As Neville Glover entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Neville Glover used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Neville Glover argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -750,7 +750,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Aug 05 2007
 
-Geraldo Volkman (a 18-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Geraldo Volkman sometimes preached his views to theists, but still felt afraid. Geraldo Volkman slowly breathed in and out to calm his nerves. As Geraldo Volkman entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Geraldo Volkman (a 18-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Geraldo Volkman sometimes preached his views to theists, but still felt afraid. Geraldo Volkman slowly breathed in and out to calm his nerves. As Geraldo Volkman entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Geraldo Volkman used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Geraldo Volkman argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -762,7 +762,7 @@ The theists pretended to listen to Geraldo Volkman's message.
 
 ###Mon Aug 06 2007
 
-Daren Lehner (a 38-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Daren Lehner had never preached his views to theists before, and freaked out. Daren Lehner thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Daren Lehner entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Daren Lehner (a 38-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Daren Lehner had never preached his views to theists before, and freaked out. Daren Lehner thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Daren Lehner entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Daren Lehner used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Daren Lehner argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -774,7 +774,7 @@ The theists pretended to listen to Daren Lehner's message.
 
 ###Tue Aug 07 2007
 
-Jewell Cassin (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jewell Cassin had extensive experience in preaching his views to theists. He was not afraid. As Jewell Cassin entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Jewell Cassin (a 32-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jewell Cassin had extensive experience in preaching his views to theists. He was not afraid. As Jewell Cassin entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Jewell Cassin used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jewell Cassin argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -786,7 +786,7 @@ The theists pretended to listen to Jewell Cassin's message.
 
 ###Wed Aug 08 2007
 
-Ollie Nikolaus (a 68-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Ollie Nikolaus sometimes preached his views to theists, but still felt afraid. Ollie Nikolaus meditated to relieve stress and to calm his nerves. As Ollie Nikolaus entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Ollie Nikolaus (a 68-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Ollie Nikolaus sometimes preached his views to theists, but still felt afraid. Ollie Nikolaus meditated to relieve stress and to calm his nerves. As Ollie Nikolaus entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Ollie Nikolaus used philosophy and reason to suggest that everyone is part of one Collective Consciousness.  Ollie Nikolaus argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -798,7 +798,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Thu Aug 09 2007
 
-Gabriel Blick (a 33-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gabriel Blick had extensive experience in preaching his views to theists. He was not afraid. As Gabriel Blick entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Gabriel Blick (a 33-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gabriel Blick had extensive experience in preaching his views to theists. He was not afraid. As Gabriel Blick entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Gabriel Blick used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Gabriel Blick argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -810,7 +810,7 @@ The theists started laughing at Gabriel Blick's flawed theology.
 
 ###Fri Aug 10 2007
 
-Rosendo Auer (a 77-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rosendo Auer had never preached his views to theists before, and freaked out. Rosendo Auer slowly breathed in and out to calm his nerves. As Rosendo Auer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Rosendo Auer (a 77-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rosendo Auer had never preached his views to theists before, and freaked out. Rosendo Auer slowly breathed in and out to calm his nerves. As Rosendo Auer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Rosendo Auer used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Rosendo Auer argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -822,7 +822,7 @@ The theists started laughing at Rosendo Auer's flawed theology.
 
 ###Sat Aug 11 2007
 
-Maynard Kertzmann (a 20-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maynard Kertzmann had extensive experience in preaching his views to theists. He was not afraid. As Maynard Kertzmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Maynard Kertzmann (a 20-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maynard Kertzmann had extensive experience in preaching his views to theists. He was not afraid. As Maynard Kertzmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Maynard Kertzmann used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Maynard Kertzmann argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -834,7 +834,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Aug 12 2007
 
-Pattie Hauck (a 78-year-old White middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Pattie Hauck had never preached her views to theists before, and freaked out. Pattie Hauck slowly breathed in and out to calm her nerves. As Pattie Hauck entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Pattie Hauck (a 78-year-old white middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Pattie Hauck had never preached her views to theists before, and freaked out. Pattie Hauck slowly breathed in and out to calm her nerves. As Pattie Hauck entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Pattie Hauck used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Pattie Hauck argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -846,7 +846,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Mon Aug 13 2007
 
-Jarod Feil (a 73-year-old Black poor person who was unable to attend high school) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jarod Feil had never preached his views to theists before, and freaked out. Jarod Feil slowly breathed in and out to calm his nerves. As Jarod Feil entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Jarod Feil (a 73-year-old black poor person who was unable to attend high school) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jarod Feil had never preached his views to theists before, and freaked out. Jarod Feil slowly breathed in and out to calm his nerves. As Jarod Feil entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Jarod Feil used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Jarod Feil argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -858,7 +858,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Tue Aug 14 2007
 
-Gertrudis Emmerich (a 75-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gertrudis Emmerich had extensive experience in preaching her views to theists. She was not afraid. As Gertrudis Emmerich entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Gertrudis Emmerich (a 75-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gertrudis Emmerich had extensive experience in preaching her views to theists. She was not afraid. As Gertrudis Emmerich entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Gertrudis Emmerich used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Gertrudis Emmerich argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -870,7 +870,7 @@ The theists started laughing at Gertrudis Emmerich's flawed theology.
 
 ###Wed Aug 15 2007
 
-Trevor Zieme (a 38-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Trevor Zieme had never preached his views to theists before, and freaked out. Trevor Zieme slowly breathed in and out to calm his nerves. As Trevor Zieme entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Trevor Zieme (a 38-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Trevor Zieme had never preached his views to theists before, and freaked out. Trevor Zieme slowly breathed in and out to calm his nerves. As Trevor Zieme entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Trevor Zieme used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Trevor Zieme argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -882,7 +882,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Aug 16 2007
 
-Mitzi Schowalter (a 67-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Mitzi Schowalter had extensive experience in preaching her views to theists. She was not afraid. As Mitzi Schowalter entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Mitzi Schowalter (a 67-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Mitzi Schowalter had extensive experience in preaching her views to theists. She was not afraid. As Mitzi Schowalter entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Mitzi Schowalter used religious teachings and beliefs to suggest that everyone is part of one Collective Consciousness. To prove her's point, Mitzi Schowalter described an example where she personally witnessed the Collective Consciousness divinely healing someone. Mitzi Schowalter argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
 
@@ -894,7 +894,7 @@ The theists pretended to listen to Mitzi Schowalter's message.
 
 ###Fri Aug 17 2007
 
-Sunni O'Hara (a 49-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sunni O'Hara had extensive experience in preaching her views to theists. She was not afraid. As Sunni O'Hara entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Sunni O'Hara (a 49-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sunni O'Hara had extensive experience in preaching her views to theists. She was not afraid. As Sunni O'Hara entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Sunni O'Hara used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Sunni O'Hara argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -906,7 +906,7 @@ The theists took notes.
 
 ###Sat Aug 18 2007
 
-Cameron Conroy (a 64-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Cameron Conroy sometimes preached his views to theists, but still felt afraid. Cameron Conroy slowly breathed in and out to calm his nerves. 
+Cameron Conroy (a 64-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Cameron Conroy sometimes preached his views to theists, but still felt afraid. Cameron Conroy slowly breathed in and out to calm his nerves. 
 
 Cameron Conroy used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Cameron Conroy argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -918,7 +918,7 @@ The theists took notes.
 
 ###Sun Aug 19 2007
 
-Tora Schowalter (a 64-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tora Schowalter had extensive experience in preaching her views to theists. She was not afraid. As Tora Schowalter entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Tora Schowalter (a 64-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tora Schowalter had extensive experience in preaching her views to theists. She was not afraid. As Tora Schowalter entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Tora Schowalter used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Tora Schowalter argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -930,7 +930,7 @@ The theists started laughing at Tora Schowalter's flawed theology.
 
 ###Mon Aug 20 2007
 
-Noreen Hills (a 51-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Noreen Hills had extensive experience in preaching her views to theists. She was not afraid. As Noreen Hills entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Noreen Hills (a 51-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Noreen Hills had extensive experience in preaching her views to theists. She was not afraid. As Noreen Hills entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Noreen Hills used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Noreen Hills described an example where she personally witnessed Alice divinely healing someone. 
 
@@ -942,7 +942,7 @@ The theists started laughing at Noreen Hills's flawed theology.
 
 ###Tue Aug 21 2007
 
-Geoffrey Schamberger (a 59-year-old White academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Geoffrey Schamberger had never preached his views to theists before, and freaked out. Geoffrey Schamberger thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Geoffrey Schamberger entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Geoffrey Schamberger (a 59-year-old white academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Geoffrey Schamberger had never preached his views to theists before, and freaked out. Geoffrey Schamberger thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Geoffrey Schamberger entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Geoffrey Schamberger used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Geoffrey Schamberger argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -966,7 +966,7 @@ The theists started laughing at Isreal Walker's flawed theology.
 
 ###Thu Aug 23 2007
 
-Alfonso Krajcik (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alfonso Krajcik had never preached his views to theists before, and freaked out. Alfonso Krajcik slowly breathed in and out to calm his nerves. As Alfonso Krajcik entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Alfonso Krajcik (a 25-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alfonso Krajcik had never preached his views to theists before, and freaked out. Alfonso Krajcik slowly breathed in and out to calm his nerves. As Alfonso Krajcik entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Alfonso Krajcik used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Alfonso Krajcik argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -978,7 +978,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Aug 24 2007
 
-Delois Wilkinson (a 69-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Delois Wilkinson had extensive experience in preaching her views to theists. She was not afraid. As Delois Wilkinson entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Delois Wilkinson (a 69-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Delois Wilkinson had extensive experience in preaching her views to theists. She was not afraid. As Delois Wilkinson entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Delois Wilkinson used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Delois Wilkinson argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -990,7 +990,7 @@ The theists took notes.
 
 ###Sat Aug 25 2007
 
-Maynard Hackett (a 65-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maynard Hackett had never preached his views to theists before, and freaked out. Maynard Hackett meditated to relieve stress and to calm his nerves. As Maynard Hackett entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Maynard Hackett (a 65-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Maynard Hackett had never preached his views to theists before, and freaked out. Maynard Hackett meditated to relieve stress and to calm his nerves. As Maynard Hackett entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Maynard Hackett used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Maynard Hackett argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1002,7 +1002,7 @@ The theists started laughing at Maynard Hackett's flawed theology.
 
 ###Sun Aug 26 2007
 
-Zachary Brakus (a 65-year-old White middle-class academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zachary Brakus sometimes preached his views to theists, but still felt afraid. Zachary Brakus meditated to relieve stress and to calm his nerves. As Zachary Brakus entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Zachary Brakus (a 65-year-old white middle-class academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zachary Brakus sometimes preached his views to theists, but still felt afraid. Zachary Brakus meditated to relieve stress and to calm his nerves. As Zachary Brakus entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Zachary Brakus used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Zachary Brakus argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1014,7 +1014,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Mon Aug 27 2007
 
-Eryn Harris (a 55-year-old White poor academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Eryn Harris had never preached her views to theists before, and freaked out. Eryn Harris thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Eryn Harris entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Eryn Harris (a 55-year-old white poor academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Eryn Harris had never preached her views to theists before, and freaked out. Eryn Harris thought about praying to the Unblinking Eye, but decided that she she can handle this situation on her own and id not need to pray just yet. As Eryn Harris entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Eryn Harris used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Eryn Harris argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1026,7 +1026,7 @@ The theists took notes.
 
 ###Tue Aug 28 2007
 
-Heath Durgan (a 33-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Heath Durgan had never preached his views to theists before, and freaked out. Heath Durgan meditated to relieve stress and to calm his nerves. As Heath Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Heath Durgan (a 33-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Heath Durgan had never preached his views to theists before, and freaked out. Heath Durgan meditated to relieve stress and to calm his nerves. As Heath Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Heath Durgan used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Heath Durgan argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1038,7 +1038,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Wed Aug 29 2007
 
-Dorian McKenzie (a 18-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dorian McKenzie had extensive experience in preaching her views to theists. She was not afraid. As Dorian McKenzie entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Dorian McKenzie (a 18-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dorian McKenzie had extensive experience in preaching her views to theists. She was not afraid. As Dorian McKenzie entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Dorian McKenzie used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. To prove her's point, Dorian McKenzie described an example where she personally witnessed the Unblinking Eye divinely healing someone. Dorian McKenzie argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1050,7 +1050,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Aug 30 2007
 
-Devon Hoeger (a 47-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Devon Hoeger had never preached his views to theists before, and freaked out. Devon Hoeger uttered a quick prayer to Karma to calm his nerves. As Devon Hoeger entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Devon Hoeger (a 47-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Devon Hoeger had never preached his views to theists before, and freaked out. Devon Hoeger uttered a quick prayer to Karma to calm his nerves. As Devon Hoeger entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Devon Hoeger used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Devon Hoeger described an example where he personally witnessed Karma divinely healing someone. Devon Hoeger argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1062,7 +1062,7 @@ The theists started laughing at Devon Hoeger's flawed theology.
 
 ###Fri Aug 31 2007
 
-Kurt Flatley (a 46-year-old Black wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kurt Flatley had never preached his views to theists before, and freaked out. Kurt Flatley uttered a quick prayer to Karma to calm his nerves. As Kurt Flatley entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Kurt Flatley (a 46-year-old black wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kurt Flatley had never preached his views to theists before, and freaked out. Kurt Flatley uttered a quick prayer to Karma to calm his nerves. As Kurt Flatley entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Kurt Flatley used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Kurt Flatley described an example where he personally witnessed Karma divinely healing someone. Kurt Flatley argued that Karma was a personal, physical being that humans can relate to and communicate with. Kurt Flatley smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -1072,7 +1072,7 @@ The theists took notes.
 
 ###Sat Sep 01 2007
 
-Rigoberto Terry (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rigoberto Terry thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Rigoberto Terry entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Rigoberto Terry (a 53-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rigoberto Terry thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Rigoberto Terry entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Rigoberto Terry used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Rigoberto Terry argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1084,7 +1084,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sun Sep 02 2007
 
-Brain Bashirian (a White college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Brain Bashirian had never preached his views to theists before, and freaked out. Brain Bashirian slowly breathed in and out to calm his nerves. As Brain Bashirian entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Brain Bashirian (a white college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Brain Bashirian had never preached his views to theists before, and freaked out. Brain Bashirian slowly breathed in and out to calm his nerves. As Brain Bashirian entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Brain Bashirian used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Brain Bashirian argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1096,7 +1096,7 @@ The theists pretended to listen to Brain Bashirian's message.
 
 ###Mon Sep 03 2007
 
-Ivory Cartwright (a 18-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Ivory Cartwright had extensive experience in preaching his views to theists. He was not afraid. As Ivory Cartwright entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Ivory Cartwright (a 18-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Ivory Cartwright had extensive experience in preaching his views to theists. He was not afraid. As Ivory Cartwright entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Ivory Cartwright used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Ivory Cartwright argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1108,7 +1108,7 @@ The theists pretended to listen to Ivory Cartwright's message.
 
 ###Tue Sep 04 2007
 
-Morris Halvorson (a 24-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Morris Halvorson had extensive experience in preaching his views to theists. He was not afraid. As Morris Halvorson entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Morris Halvorson (a 24-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Morris Halvorson had extensive experience in preaching his views to theists. He was not afraid. As Morris Halvorson entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Morris Halvorson used philosophy and reason to suggest that everyone is part of one Collective Consciousness. To prove his's point, Morris Halvorson described an example where he personally witnessed the Collective Consciousness divinely healing someone. Morris Halvorson argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1120,7 +1120,7 @@ The theists started laughing at Morris Halvorson's flawed theology.
 
 ###Wed Sep 05 2007
 
-Lucrecia Schulist (a 18-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lucrecia Schulist had extensive experience in preaching her views to theists. She was not afraid. As Lucrecia Schulist entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Lucrecia Schulist (a 18-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lucrecia Schulist had extensive experience in preaching her views to theists. She was not afraid. As Lucrecia Schulist entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Lucrecia Schulist used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  
 
@@ -1132,7 +1132,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Sep 06 2007
 
-Toney Thiel (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Toney Thiel had never preached his views to theists before, and freaked out. Toney Thiel thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Toney Thiel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Toney Thiel (a 32-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Toney Thiel had never preached his views to theists before, and freaked out. Toney Thiel thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Toney Thiel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Toney Thiel used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Toney Thiel argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Toney Thiel laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how the Unblinking Eye created humans. Toney Thiel became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
 
@@ -1142,7 +1142,7 @@ The theists started laughing at Toney Thiel's flawed theology.
 
 ###Fri Sep 07 2007
 
-Dale Hills (a 46-year-old White high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dale Hills had extensive experience in preaching his views to theists. He was not afraid. 
+Dale Hills (a 46-year-old white high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dale Hills had extensive experience in preaching his views to theists. He was not afraid. 
 
 Dale Hills used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Dale Hills described an example where he personally witnessed Karma divinely healing someone. Dale Hills argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1152,7 +1152,7 @@ The theists took notes.
 
 ###Sat Sep 08 2007
 
-Lucas Becker (a 37-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lucas Becker meditated to relieve stress and to calm his nerves. 
+Lucas Becker (a 37-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Lucas Becker meditated to relieve stress and to calm his nerves. 
 
 Lucas Becker used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Lucas Becker argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1162,7 +1162,7 @@ The theists pretended to listen to Lucas Becker's message.
 
 ###Sun Sep 09 2007
 
-Loan Balistreri (a 45-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Loan Balistreri sometimes preached her views to theists, but still felt afraid. Loan Balistreri uttered a quick prayer to Alice to calm her nerves. As Loan Balistreri entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Loan Balistreri (a 45-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Loan Balistreri sometimes preached her views to theists, but still felt afraid. Loan Balistreri uttered a quick prayer to Alice to calm her nerves. As Loan Balistreri entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Loan Balistreri used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Loan Balistreri argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1174,7 +1174,7 @@ The theists pretended to listen to Loan Balistreri's message.
 
 ###Mon Sep 10 2007
 
-Mirtha Okuneva (a 48-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mirtha Okuneva had never preached her views to theists before, and freaked out. Mirtha Okuneva uttered a quick prayer to Alice to calm her nerves. As Mirtha Okuneva entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Mirtha Okuneva (a 48-year-old white poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mirtha Okuneva had never preached her views to theists before, and freaked out. Mirtha Okuneva uttered a quick prayer to Alice to calm her nerves. As Mirtha Okuneva entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Mirtha Okuneva used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Mirtha Okuneva argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1186,7 +1186,7 @@ The theists took notes.
 
 ###Tue Sep 11 2007
 
-Alden Padberg (a 81-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alden Padberg sometimes preached his views to theists, but still felt afraid. Alden Padberg meditated to relieve stress and to calm his nerves. 
+Alden Padberg (a 81-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alden Padberg sometimes preached his views to theists, but still felt afraid. Alden Padberg meditated to relieve stress and to calm his nerves. 
 
 Alden Padberg used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. 
 
@@ -1196,7 +1196,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Wed Sep 12 2007
 
-George Gusikowski (a 31-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! George Gusikowski had never preached his views to theists before, and freaked out. George Gusikowski thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As George Gusikowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+George Gusikowski (a 31-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! George Gusikowski had never preached his views to theists before, and freaked out. George Gusikowski thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As George Gusikowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 George Gusikowski used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  George Gusikowski argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1206,7 +1206,7 @@ The theists pretended to listen to George Gusikowski's message.
 
 ###Thu Sep 13 2007
 
-Milan Moen (a 39-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Milan Moen had never preached his views to theists before, and freaked out. Milan Moen uttered a quick prayer to Karma to calm his nerves. As Milan Moen entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Milan Moen (a 39-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Milan Moen had never preached his views to theists before, and freaked out. Milan Moen uttered a quick prayer to Karma to calm his nerves. As Milan Moen entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Milan Moen used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Milan Moen argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1218,7 +1218,7 @@ The theists started laughing at Milan Moen's flawed theology.
 
 ###Fri Sep 14 2007
 
-Jake Jacobi (a 22-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jake Jacobi had never preached his views to theists before, and freaked out. Jake Jacobi uttered a quick prayer to the Unblinking Eye to calm his nerves. As Jake Jacobi entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Jake Jacobi (a 22-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Jake Jacobi had never preached his views to theists before, and freaked out. Jake Jacobi uttered a quick prayer to the Unblinking Eye to calm his nerves. As Jake Jacobi entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Jake Jacobi used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jake Jacobi argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1230,7 +1230,7 @@ The theists pretended to listen to Jake Jacobi's message.
 
 ###Sat Sep 15 2007
 
-Jackson Reichel (a 18-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jackson Reichel had never preached his views to theists before, and freaked out. Jackson Reichel slowly breathed in and out to calm his nerves. As Jackson Reichel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Jackson Reichel (a 18-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jackson Reichel had never preached his views to theists before, and freaked out. Jackson Reichel slowly breathed in and out to calm his nerves. As Jackson Reichel entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Jackson Reichel used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Jackson Reichel argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1242,7 +1242,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Sep 16 2007
 
-Tara Bruen (a 52-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Tara Bruen sometimes preached her views to theists, but still felt afraid. Tara Bruen meditated to relieve stress and to calm her nerves. As Tara Bruen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Tara Bruen (a 52-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Tara Bruen sometimes preached her views to theists, but still felt afraid. Tara Bruen meditated to relieve stress and to calm her nerves. As Tara Bruen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Tara Bruen used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Tara Bruen argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1254,7 +1254,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Mon Sep 17 2007
 
-Marcia Luettgen (a 55-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marcia Luettgen had extensive experience in preaching her views to theists. She was not afraid. As Marcia Luettgen entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Marcia Luettgen (a 55-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marcia Luettgen had extensive experience in preaching her views to theists. She was not afraid. As Marcia Luettgen entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Marcia Luettgen used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Marcia Luettgen argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1266,7 +1266,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Tue Sep 18 2007
 
-Rolland Fahey (a 22-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rolland Fahey had never preached his views to theists before, and freaked out. Rolland Fahey slowly breathed in and out to calm his nerves. As Rolland Fahey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Rolland Fahey (a 22-year-old white middle-class college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rolland Fahey had never preached his views to theists before, and freaked out. Rolland Fahey slowly breathed in and out to calm his nerves. As Rolland Fahey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Rolland Fahey used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Rolland Fahey argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1278,7 +1278,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Wed Sep 19 2007
 
-Mac Runte (a 62-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mac Runte sometimes preached his views to theists, but still felt afraid. Mac Runte thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Mac Runte entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Mac Runte (a 62-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mac Runte sometimes preached his views to theists, but still felt afraid. Mac Runte thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Mac Runte entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Mac Runte used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
 
@@ -1290,7 +1290,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Thu Sep 20 2007
 
-Andrea Rogahn (a 33-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Andrea Rogahn sometimes preached his views to theists, but still felt afraid. Andrea Rogahn uttered a quick prayer to Karma to calm his nerves. As Andrea Rogahn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Andrea Rogahn (a 33-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Andrea Rogahn sometimes preached his views to theists, but still felt afraid. Andrea Rogahn uttered a quick prayer to Karma to calm his nerves. As Andrea Rogahn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Andrea Rogahn used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Andrea Rogahn described an example where he personally witnessed Karma divinely healing someone. Andrea Rogahn argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Andrea Rogahn denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Andrea Rogahn smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -1300,7 +1300,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Fri Sep 21 2007
 
-Jospeh Mann (a 38-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jospeh Mann had never preached his views to theists before, and freaked out. Jospeh Mann slowly breathed in and out to calm his nerves. 
+Jospeh Mann (a 38-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jospeh Mann had never preached his views to theists before, and freaked out. Jospeh Mann slowly breathed in and out to calm his nerves. 
 
 Jospeh Mann used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Jospeh Mann laughed at the idea of an afterlife: there is no life after this world, only the cold comfort of oblivion. Jospeh Mann declared that the Collective Consciousness strongly supports clear ethical standards that all humans must obey. Jospeh Mann concluded his speech by claiming that the government should never interfere with issues of morality; doing so would be a violation of the Collective Consciousness's strict support of free will and local automony. Instead, people should be free to behave as they want and desire, and the Collective Consciousness will simply watch and judge. 
 
@@ -1308,7 +1308,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sat Sep 22 2007
 
-Jaimee Hackett (a 56-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Jaimee Hackett slowly breathed in and out to calm her nerves. As Jaimee Hackett entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Jaimee Hackett (a 56-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Jaimee Hackett slowly breathed in and out to calm her nerves. As Jaimee Hackett entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Jaimee Hackett used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  
 
@@ -1332,7 +1332,7 @@ The theists pretended to listen to Shirlee Cartwright's message.
 
 ###Mon Sep 24 2007
 
-Lindsay Zulauf (a 18-year-old Black middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lindsay Zulauf had extensive experience in preaching his views to theists. He was not afraid. As Lindsay Zulauf entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Lindsay Zulauf (a 18-year-old black middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Lindsay Zulauf had extensive experience in preaching his views to theists. He was not afraid. As Lindsay Zulauf entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Lindsay Zulauf used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Lindsay Zulauf argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1356,7 +1356,7 @@ The theists pretended to listen to Rosario Glover's message.
 
 ###Wed Sep 26 2007
 
-Caren Kuvalis (a 79-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Caren Kuvalis had never preached her views to theists before, and freaked out. Caren Kuvalis thought about praying to the Collective Consciousness, but decided that she she can handle this situation on her own and id not need to pray just yet. As Caren Kuvalis entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Caren Kuvalis (a 79-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Caren Kuvalis had never preached her views to theists before, and freaked out. Caren Kuvalis thought about praying to the Collective Consciousness, but decided that she she can handle this situation on her own and id not need to pray just yet. As Caren Kuvalis entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Caren Kuvalis used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Caren Kuvalis argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1368,7 +1368,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Sep 27 2007
 
-Grady Kuphal (a 19-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grady Kuphal had extensive experience in preaching his views to theists. He was not afraid. As Grady Kuphal entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Grady Kuphal (a 19-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grady Kuphal had extensive experience in preaching his views to theists. He was not afraid. As Grady Kuphal entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Grady Kuphal used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Grady Kuphal argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1390,7 +1390,7 @@ The theists took notes.
 
 ###Sat Sep 29 2007
 
-Marcus Rice (a 24-year-old Black high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Marcus Rice sometimes preached his views to theists, but still felt afraid. Marcus Rice meditated to relieve stress and to calm his nerves. As Marcus Rice entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Marcus Rice (a 24-year-old black high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Marcus Rice sometimes preached his views to theists, but still felt afraid. Marcus Rice meditated to relieve stress and to calm his nerves. As Marcus Rice entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Marcus Rice used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Marcus Rice argued that Karma was a personal, physical being that humans can relate to and communicate with. Marcus Rice denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Marcus Rice attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
 
@@ -1400,7 +1400,7 @@ The theists started laughing at Marcus Rice's flawed theology.
 
 ###Sun Sep 30 2007
 
-Ted Hand (a 21-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Ted Hand had extensive experience in preaching his views to theists. He was not afraid. As Ted Hand entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Ted Hand (a 21-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Ted Hand had extensive experience in preaching his views to theists. He was not afraid. As Ted Hand entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Ted Hand used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Ted Hand argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1412,7 +1412,7 @@ The theists started laughing at Ted Hand's flawed theology.
 
 ###Mon Oct 01 2007
 
-Rodrick Davis (a 23-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rodrick Davis had extensive experience in preaching his views to theists. He was not afraid. As Rodrick Davis entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Rodrick Davis (a 23-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rodrick Davis had extensive experience in preaching his views to theists. He was not afraid. As Rodrick Davis entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Rodrick Davis used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Rodrick Davis argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1424,7 +1424,7 @@ The theists took notes.
 
 ###Tue Oct 02 2007
 
-Stuart Boyle (a 54-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Boyle had extensive experience in preaching his views to theists. He was not afraid. As Stuart Boyle entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Stuart Boyle (a 54-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Boyle had extensive experience in preaching his views to theists. He was not afraid. As Stuart Boyle entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Stuart Boyle used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Stuart Boyle argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1436,7 +1436,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Wed Oct 03 2007
 
-Gabriel Keebler (a 36-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gabriel Keebler had never preached his views to theists before, and freaked out. Gabriel Keebler slowly breathed in and out to calm his nerves. As Gabriel Keebler entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Gabriel Keebler (a 36-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gabriel Keebler had never preached his views to theists before, and freaked out. Gabriel Keebler slowly breathed in and out to calm his nerves. As Gabriel Keebler entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Gabriel Keebler used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Gabriel Keebler argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1448,7 +1448,7 @@ The theists pretended to listen to Gabriel Keebler's message.
 
 ###Thu Oct 04 2007
 
-Gerard Vandervort (a 43-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Gerard Vandervort had extensive experience in preaching his views to theists. He was not afraid. As Gerard Vandervort entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Gerard Vandervort (a 43-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Gerard Vandervort had extensive experience in preaching his views to theists. He was not afraid. As Gerard Vandervort entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Gerard Vandervort used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Gerard Vandervort argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1460,7 +1460,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Fri Oct 05 2007
 
-Jean Rolfson (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jean Rolfson had never preached her views to theists before, and freaked out. Jean Rolfson thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. As Jean Rolfson entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Jean Rolfson (a 53-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Jean Rolfson had never preached her views to theists before, and freaked out. Jean Rolfson thought about praying to Karma, but decided that she she can handle this situation on her own and id not need to pray just yet. As Jean Rolfson entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Jean Rolfson used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Jean Rolfson argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1504,7 +1504,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Oct 09 2007
 
-Ross Paucek (a 36-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Ross Paucek had never preached his views to theists before, and freaked out. Ross Paucek thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Ross Paucek entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Ross Paucek (a 36-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Ross Paucek had never preached his views to theists before, and freaked out. Ross Paucek thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Ross Paucek entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Ross Paucek used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Ross Paucek argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1516,7 +1516,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Wed Oct 10 2007
 
-Samuel McKenzie (a 31-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Samuel McKenzie had never preached his views to theists before, and freaked out. Samuel McKenzie thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Samuel McKenzie entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Samuel McKenzie (a 31-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Samuel McKenzie had never preached his views to theists before, and freaked out. Samuel McKenzie thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Samuel McKenzie entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Samuel McKenzie used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Samuel McKenzie argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1528,7 +1528,7 @@ The theists pretended to listen to Samuel McKenzie's message.
 
 ###Thu Oct 11 2007
 
-Grover Schowalter (a 22-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grover Schowalter sometimes preached his views to theists, but still felt afraid. Grover Schowalter meditated to relieve stress and to calm his nerves. As Grover Schowalter entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Grover Schowalter (a 22-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Grover Schowalter sometimes preached his views to theists, but still felt afraid. Grover Schowalter meditated to relieve stress and to calm his nerves. As Grover Schowalter entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Grover Schowalter used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Grover Schowalter argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1540,7 +1540,7 @@ The theists started laughing at Grover Schowalter's flawed theology.
 
 ###Fri Oct 12 2007
 
-Monty Hamill (a 34-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monty Hamill had extensive experience in preaching his views to theists. He was not afraid. As Monty Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Monty Hamill (a 34-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monty Hamill had extensive experience in preaching his views to theists. He was not afraid. As Monty Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Monty Hamill used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Monty Hamill argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1552,7 +1552,7 @@ The theists pretended to listen to Monty Hamill's message.
 
 ###Sat Oct 13 2007
 
-Elvis Bernhard (a 53-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elvis Bernhard sometimes preached his views to theists, but still felt afraid. Elvis Bernhard thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Elvis Bernhard entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Elvis Bernhard (a 53-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elvis Bernhard sometimes preached his views to theists, but still felt afraid. Elvis Bernhard thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Elvis Bernhard entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Elvis Bernhard used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Elvis Bernhard argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1564,7 +1564,7 @@ The theists took notes.
 
 ###Sun Oct 14 2007
 
-Marjory Tromp (a 27-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marjory Tromp had never preached her views to theists before, and freaked out. Marjory Tromp slowly breathed in and out to calm her nerves. As Marjory Tromp entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Marjory Tromp (a 27-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marjory Tromp had never preached her views to theists before, and freaked out. Marjory Tromp slowly breathed in and out to calm her nerves. As Marjory Tromp entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Marjory Tromp used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  
 
@@ -1586,7 +1586,7 @@ The theists took notes.
 
 ###Tue Oct 16 2007
 
-Erick Bailey (a 38-year-old White college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erick Bailey sometimes preached his views to theists, but still felt afraid. Erick Bailey thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Erick Bailey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Erick Bailey (a 38-year-old white college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erick Bailey sometimes preached his views to theists, but still felt afraid. Erick Bailey thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Erick Bailey entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Erick Bailey used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Erick Bailey argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1610,7 +1610,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Oct 18 2007
 
-Wilma Luettgen (a 37-year-old White middle-class college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilma Luettgen had never preached her views to theists before, and freaked out. Wilma Luettgen uttered a quick prayer to the Unblinking Eye to calm her nerves. As Wilma Luettgen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Wilma Luettgen (a 37-year-old white middle-class college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilma Luettgen had never preached her views to theists before, and freaked out. Wilma Luettgen uttered a quick prayer to the Unblinking Eye to calm her nerves. As Wilma Luettgen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Wilma Luettgen used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. To prove her's point, Wilma Luettgen described an example where she personally witnessed the Unblinking Eye divinely healing someone. Wilma Luettgen argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1634,7 +1634,7 @@ The theists pretended to listen to Reynaldo Dickens's message.
 
 ###Sat Oct 20 2007
 
-Allyn Erdman (a 70-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Allyn Erdman sometimes preached her views to theists, but still felt afraid. Allyn Erdman thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. As Allyn Erdman entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Allyn Erdman (a 70-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Allyn Erdman sometimes preached her views to theists, but still felt afraid. Allyn Erdman thought about medidating, but decided that she can handle this situation on her own and did not need to medidate just yet. As Allyn Erdman entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Allyn Erdman used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
 
@@ -1646,7 +1646,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Oct 21 2007
 
-Michal Ferry (a 45-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Michal Ferry sometimes preached his views to theists, but still felt afraid. Michal Ferry meditated to relieve stress and to calm his nerves. As Michal Ferry entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Michal Ferry (a 45-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Michal Ferry sometimes preached his views to theists, but still felt afraid. Michal Ferry meditated to relieve stress and to calm his nerves. As Michal Ferry entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
   
 
@@ -1658,7 +1658,7 @@ The theists started laughing at Michal Ferry's flawed theology.
 
 ###Mon Oct 22 2007
 
-Birgit Schiller (a 81-year-old Black poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Birgit Schiller sometimes preached her views to theists, but still felt afraid. Birgit Schiller thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Birgit Schiller entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Birgit Schiller (a 81-year-old black poor high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Birgit Schiller sometimes preached her views to theists, but still felt afraid. Birgit Schiller thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Birgit Schiller entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Birgit Schiller used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Birgit Schiller argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1670,7 +1670,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Oct 23 2007
 
-Rubin Ledner (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rubin Ledner had never preached his views to theists before, and freaked out. Rubin Ledner thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Rubin Ledner entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Rubin Ledner (a 25-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Rubin Ledner had never preached his views to theists before, and freaked out. Rubin Ledner thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Rubin Ledner entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Rubin Ledner used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Rubin Ledner argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1682,7 +1682,7 @@ The theists pretended to listen to Rubin Ledner's message.
 
 ###Wed Oct 24 2007
 
-Garfield Stokes (a 19-year-old White poor high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Garfield Stokes had extensive experience in preaching his views to theists. He was not afraid. As Garfield Stokes entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Garfield Stokes (a 19-year-old white poor high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Garfield Stokes had extensive experience in preaching his views to theists. He was not afraid. As Garfield Stokes entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Garfield Stokes used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Garfield Stokes argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1694,7 +1694,7 @@ The theists started laughing at Garfield Stokes's flawed theology.
 
 ###Thu Oct 25 2007
 
-Elaina Blanda (a 55-year-old White middle-class college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elaina Blanda uttered a quick prayer to the Collective Consciousness to calm her nerves. 
+Elaina Blanda (a 55-year-old white middle-class college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elaina Blanda uttered a quick prayer to the Collective Consciousness to calm her nerves. 
 
 Elaina Blanda outright claimed that everyone is part of one Collective Consciousness. Elaina Blanda argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1706,7 +1706,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Oct 26 2007
 
-Benedict Hamill (a 74-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Benedict Hamill had never preached his views to theists before, and freaked out. Benedict Hamill slowly breathed in and out to calm his nerves. As Benedict Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Benedict Hamill (a 74-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Benedict Hamill had never preached his views to theists before, and freaked out. Benedict Hamill slowly breathed in and out to calm his nerves. As Benedict Hamill entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Benedict Hamill used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Benedict Hamill argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1718,7 +1718,7 @@ The theists took notes.
 
 ###Sat Oct 27 2007
 
-David Klocko (a 64-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. David Klocko sometimes preached his views to theists, but still felt afraid. David Klocko thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As David Klocko entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+David Klocko (a 64-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. David Klocko sometimes preached his views to theists, but still felt afraid. David Klocko thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As David Klocko entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 David Klocko used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
 
@@ -1730,7 +1730,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sun Oct 28 2007
 
-Tilda Christiansen (a 78-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tilda Christiansen sometimes preached her views to theists, but still felt afraid. Tilda Christiansen meditated to relieve stress and to calm her nerves. As Tilda Christiansen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Tilda Christiansen (a 78-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Tilda Christiansen sometimes preached her views to theists, but still felt afraid. Tilda Christiansen meditated to relieve stress and to calm her nerves. As Tilda Christiansen entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Tilda Christiansen used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  
 
@@ -1742,7 +1742,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Mon Oct 29 2007
 
-Erick Huel (a 21-year-old Black college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Erick Huel had never preached his views to theists before, and freaked out. Erick Huel slowly breathed in and out to calm his nerves. As Erick Huel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Erick Huel (a 21-year-old black college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Erick Huel had never preached his views to theists before, and freaked out. Erick Huel slowly breathed in and out to calm his nerves. As Erick Huel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Erick Huel used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Erick Huel argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1764,7 +1764,7 @@ The theists started laughing at Bettina Wehner's flawed theology.
 
 ###Wed Oct 31 2007
 
-Art Lynch (a 27-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Art Lynch had never preached his views to theists before, and freaked out. Art Lynch thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Art Lynch entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Art Lynch (a 27-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Art Lynch had never preached his views to theists before, and freaked out. Art Lynch thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Art Lynch entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Art Lynch used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Art Lynch argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1776,7 +1776,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Thu Nov 01 2007
 
-Christinia Koss (a 51-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Christinia Koss had never preached her views to theists before, and freaked out. Christinia Koss slowly breathed in and out to calm her nerves. As Christinia Koss entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Christinia Koss (a 51-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Christinia Koss had never preached her views to theists before, and freaked out. Christinia Koss slowly breathed in and out to calm her nerves. As Christinia Koss entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Christinia Koss used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Christinia Koss argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1788,7 +1788,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Fri Nov 02 2007
 
-Monte Rutherford (a 41-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monte Rutherford sometimes preached his views to theists, but still felt afraid. Monte Rutherford meditated to relieve stress and to calm his nerves. As Monte Rutherford entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Monte Rutherford (a 41-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Monte Rutherford sometimes preached his views to theists, but still felt afraid. Monte Rutherford meditated to relieve stress and to calm his nerves. As Monte Rutherford entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Monte Rutherford used scientific information to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Monte Rutherford argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Monte Rutherford denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Alice created humans. Monte Rutherford attempted to explain how the afterlife worked, but the religious people could not understand his metaphysical terminology. 
 
@@ -1798,7 +1798,7 @@ The theists took notes.
 
 ###Sat Nov 03 2007
 
-Stuart Durgan (a 48-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Durgan sometimes preached his views to theists, but still felt afraid. Stuart Durgan thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Stuart Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Stuart Durgan (a 48-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Stuart Durgan sometimes preached his views to theists, but still felt afraid. Stuart Durgan thought about praying to Alice, but decided that he he can handle this situation on his own and id not need to pray just yet. As Stuart Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Stuart Durgan used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Stuart Durgan argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1810,7 +1810,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sun Nov 04 2007
 
-Randy Schmeler (a 39-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Randy Schmeler sometimes preached his views to theists, but still felt afraid. Randy Schmeler uttered a quick prayer to the Unblinking Eye to calm his nerves. As Randy Schmeler entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Randy Schmeler (a 39-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Randy Schmeler sometimes preached his views to theists, but still felt afraid. Randy Schmeler uttered a quick prayer to the Unblinking Eye to calm his nerves. As Randy Schmeler entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Randy Schmeler used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Randy Schmeler argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1832,7 +1832,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Nov 06 2007
 
-Dorinda Farrell (a 61-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dorinda Farrell had extensive experience in preaching her views to theists. She was not afraid. As Dorinda Farrell entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Dorinda Farrell (a 61-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Dorinda Farrell had extensive experience in preaching her views to theists. She was not afraid. As Dorinda Farrell entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Dorinda Farrell used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Dorinda Farrell argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1844,7 +1844,7 @@ The theists pretended to listen to Dorinda Farrell's message.
 
 ###Wed Nov 07 2007
 
-Mui Smitham (a 22-year-old White poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mui Smitham sometimes preached her views to theists, but still felt afraid. Mui Smitham slowly breathed in and out to calm her nerves. As Mui Smitham entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Mui Smitham (a 22-year-old white poor blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Mui Smitham sometimes preached her views to theists, but still felt afraid. Mui Smitham slowly breathed in and out to calm her nerves. As Mui Smitham entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Mui Smitham used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Mui Smitham argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1856,7 +1856,7 @@ The theists pretended to listen to Mui Smitham's message.
 
 ###Thu Nov 08 2007
 
-Elisa Heaney (a White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elisa Heaney had never preached her views to theists before, and freaked out. Elisa Heaney uttered a quick prayer to Karma to calm her nerves. As Elisa Heaney entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Elisa Heaney (a white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Elisa Heaney had never preached her views to theists before, and freaked out. Elisa Heaney uttered a quick prayer to Karma to calm her nerves. As Elisa Heaney entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Elisa Heaney used scientific information to make the claim that the universe is controlled by a magical force called 'Karma'.  Elisa Heaney denounced the concept of 'intelligent design', claiming that evolution is the best way to explain how Karma created humans. Elisa Heaney smiled when she explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -1866,7 +1866,7 @@ The theists took notes.
 
 ###Fri Nov 09 2007
 
-Cory Predovic (a 19-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Cory Predovic uttered a quick prayer to the Collective Consciousness to calm his nerves. As Cory Predovic entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Cory Predovic (a 19-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Cory Predovic uttered a quick prayer to the Collective Consciousness to calm his nerves. As Cory Predovic entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Cory Predovic outright claimed that everyone is part of one Collective Consciousness.  Cory Predovic argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1878,7 +1878,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sat Nov 10 2007
 
-Sal Crist (a 38-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sal Crist had extensive experience in preaching his views to theists. He was not afraid. As Sal Crist entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Sal Crist (a 38-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sal Crist had extensive experience in preaching his views to theists. He was not afraid. As Sal Crist entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Sal Crist used philosophy and reason to suggest that everyone is part of one Collective Consciousness.  Sal Crist argued that the Collective Consciousness was a personal, physical being that humans can relate to and communicate with. 
 
@@ -1890,7 +1890,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sun Nov 11 2007
 
-Palmer Lemke (a 62-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Palmer Lemke had never preached his views to theists before, and freaked out. Palmer Lemke thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Palmer Lemke entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Palmer Lemke (a 62-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Palmer Lemke had never preached his views to theists before, and freaked out. Palmer Lemke thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Palmer Lemke entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Palmer Lemke used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Palmer Lemke argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1902,7 +1902,7 @@ The theists took notes.
 
 ###Mon Nov 12 2007
 
-Wilford Hermiston (a 18-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilford Hermiston sometimes preached his views to theists, but still felt afraid. Wilford Hermiston slowly breathed in and out to calm his nerves. As Wilford Hermiston entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Wilford Hermiston (a 18-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Wilford Hermiston sometimes preached his views to theists, but still felt afraid. Wilford Hermiston slowly breathed in and out to calm his nerves. As Wilford Hermiston entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Wilford Hermiston used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Wilford Hermiston argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1914,7 +1914,7 @@ The theists pretended to listen to Wilford Hermiston's message.
 
 ###Tue Nov 13 2007
 
-Marion Gaylord (a 38-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marion Gaylord had never preached his views to theists before, and freaked out. Marion Gaylord thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Marion Gaylord entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Marion Gaylord (a 38-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Marion Gaylord had never preached his views to theists before, and freaked out. Marion Gaylord thought about praying to the Collective Consciousness, but decided that he he can handle this situation on his own and id not need to pray just yet. As Marion Gaylord entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Marion Gaylord used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Marion Gaylord argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1926,7 +1926,7 @@ The theists took notes.
 
 ###Wed Nov 14 2007
 
-Alfred Hegmann (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alfred Hegmann had extensive experience in preaching his views to theists. He was not afraid. As Alfred Hegmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Alfred Hegmann (a 32-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alfred Hegmann had extensive experience in preaching his views to theists. He was not afraid. As Alfred Hegmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Alfred Hegmann used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Alfred Hegmann argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1938,7 +1938,7 @@ The theists started laughing at Alfred Hegmann's flawed theology.
 
 ###Thu Nov 15 2007
 
-Gus Gutmann (a 68-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gus Gutmann sometimes preached his views to theists, but still felt afraid. Gus Gutmann meditated to relieve stress and to calm his nerves. As Gus Gutmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Gus Gutmann (a 68-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Gus Gutmann sometimes preached his views to theists, but still felt afraid. Gus Gutmann meditated to relieve stress and to calm his nerves. As Gus Gutmann entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Gus Gutmann used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Gus Gutmann argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1950,7 +1950,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Nov 16 2007
 
-Vaughn Morar (a 33-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Vaughn Morar had extensive experience in preaching his views to theists. He was not afraid. As Vaughn Morar entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Vaughn Morar (a 33-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Vaughn Morar had extensive experience in preaching his views to theists. He was not afraid. As Vaughn Morar entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Vaughn Morar used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Vaughn Morar argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1962,7 +1962,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sat Nov 17 2007
 
-Freddie Runolfsson (a 77-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Freddie Runolfsson had never preached his views to theists before, and freaked out. Freddie Runolfsson slowly breathed in and out to calm his nerves. As Freddie Runolfsson entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Freddie Runolfsson (a 77-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Freddie Runolfsson had never preached his views to theists before, and freaked out. Freddie Runolfsson slowly breathed in and out to calm his nerves. As Freddie Runolfsson entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Freddie Runolfsson used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Freddie Runolfsson argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1974,7 +1974,7 @@ The theists started laughing at Freddie Runolfsson's flawed theology.
 
 ###Sun Nov 18 2007
 
-Laverne Rempel (a 20-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Laverne Rempel had extensive experience in preaching his views to theists. He was not afraid. As Laverne Rempel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Laverne Rempel (a 20-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Laverne Rempel had extensive experience in preaching his views to theists. He was not afraid. As Laverne Rempel entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Laverne Rempel used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Laverne Rempel argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1986,7 +1986,7 @@ The theists started laughing at Laverne Rempel's flawed theology.
 
 ###Mon Nov 19 2007
 
-Zoraida Grimes (a 78-year-old White middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zoraida Grimes had never preached her views to theists before, and freaked out. Zoraida Grimes slowly breathed in and out to calm her nerves. As Zoraida Grimes entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Zoraida Grimes (a 78-year-old white middle-class blue-collar laborer) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Zoraida Grimes had never preached her views to theists before, and freaked out. Zoraida Grimes slowly breathed in and out to calm her nerves. As Zoraida Grimes entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Zoraida Grimes used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Zoraida Grimes argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -1998,7 +1998,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Tue Nov 20 2007
 
-Stanford Hagenes (a 73-year-old Black poor person who was unable to attend high school) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Stanford Hagenes had never preached his views to theists before, and freaked out. Stanford Hagenes slowly breathed in and out to calm his nerves. As Stanford Hagenes entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Stanford Hagenes (a 73-year-old black poor person who was unable to attend high school) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Stanford Hagenes had never preached his views to theists before, and freaked out. Stanford Hagenes slowly breathed in and out to calm his nerves. As Stanford Hagenes entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Stanford Hagenes used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Stanford Hagenes argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2010,7 +2010,7 @@ The theists took notes.
 
 ###Wed Nov 21 2007
 
-Darla Rowe (a 75-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Darla Rowe had extensive experience in preaching her views to theists. She was not afraid. As Darla Rowe entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Darla Rowe (a 75-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Darla Rowe had extensive experience in preaching her views to theists. She was not afraid. As Darla Rowe entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Darla Rowe used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Darla Rowe argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2022,7 +2022,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Nov 22 2007
 
-Emilio Witting (a 38-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Emilio Witting had never preached his views to theists before, and freaked out. Emilio Witting slowly breathed in and out to calm his nerves. As Emilio Witting entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Emilio Witting (a 38-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Emilio Witting had never preached his views to theists before, and freaked out. Emilio Witting slowly breathed in and out to calm his nerves. As Emilio Witting entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Emilio Witting used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Emilio Witting argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2034,7 +2034,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Nov 23 2007
 
-Emma Sanford (a 67-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Emma Sanford had extensive experience in preaching her views to theists. She was not afraid. As Emma Sanford entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Emma Sanford (a 67-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Emma Sanford had extensive experience in preaching her views to theists. She was not afraid. As Emma Sanford entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Emma Sanford used religious teachings and beliefs to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye. To prove her's point, Emma Sanford described an example where she personally witnessed the Unblinking Eye divinely healing someone. Emma Sanford argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2046,7 +2046,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sat Nov 24 2007
 
-Alysha Cartwright (a 49-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alysha Cartwright had extensive experience in preaching her views to theists. She was not afraid. As Alysha Cartwright entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Alysha Cartwright (a 49-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Alysha Cartwright had extensive experience in preaching her views to theists. She was not afraid. As Alysha Cartwright entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Alysha Cartwright used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Alysha Cartwright argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2058,7 +2058,7 @@ The theists took notes.
 
 ###Sun Nov 25 2007
 
-Kelley Hettinger (a 64-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kelley Hettinger sometimes preached his views to theists, but still felt afraid. Kelley Hettinger slowly breathed in and out to calm his nerves. 
+Kelley Hettinger (a 64-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Kelley Hettinger sometimes preached his views to theists, but still felt afraid. Kelley Hettinger slowly breathed in and out to calm his nerves. 
 
 Kelley Hettinger used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Kelley Hettinger argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2070,7 +2070,7 @@ The theists took notes.
 
 ###Mon Nov 26 2007
 
-Willena Schaefer (a 64-year-old White poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willena Schaefer had extensive experience in preaching her views to theists. She was not afraid. As Willena Schaefer entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Willena Schaefer (a 64-year-old white poor college dropout) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willena Schaefer had extensive experience in preaching her views to theists. She was not afraid. As Willena Schaefer entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Willena Schaefer used scientific information to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Willena Schaefer argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2082,7 +2082,7 @@ The theists started laughing at Willena Schaefer's flawed theology.
 
 ###Tue Nov 27 2007
 
-Maurice Kshlerin (a 51-year-old White middle-class high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Maurice Kshlerin had extensive experience in preaching her views to theists. She was not afraid. As Maurice Kshlerin entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Maurice Kshlerin (a 51-year-old white middle-class high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Maurice Kshlerin had extensive experience in preaching her views to theists. She was not afraid. As Maurice Kshlerin entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Maurice Kshlerin used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Maurice Kshlerin described an example where she personally witnessed Alice divinely healing someone. 
 
@@ -2094,7 +2094,7 @@ The theists started laughing at Maurice Kshlerin's flawed theology.
 
 ###Wed Nov 28 2007
 
-Andrea Kuhn (a 59-year-old White academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Andrea Kuhn had never preached his views to theists before, and freaked out. Andrea Kuhn thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Andrea Kuhn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Andrea Kuhn (a 59-year-old white academic) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Andrea Kuhn had never preached his views to theists before, and freaked out. Andrea Kuhn thought about praying to the Unblinking Eye, but decided that he he can handle this situation on his own and id not need to pray just yet. As Andrea Kuhn entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Andrea Kuhn used practical experience and common sense to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Andrea Kuhn argued that the Unblinking Eye was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2118,7 +2118,7 @@ The theists started laughing at Jospeh Zemlak's flawed theology.
 
 ###Fri Nov 30 2007
 
-Sam Powlowski (a 25-year-old White poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sam Powlowski had never preached his views to theists before, and freaked out. Sam Powlowski slowly breathed in and out to calm his nerves. As Sam Powlowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Sam Powlowski (a 25-year-old white poor high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Sam Powlowski had never preached his views to theists before, and freaked out. Sam Powlowski slowly breathed in and out to calm his nerves. As Sam Powlowski entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Sam Powlowski used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Sam Powlowski argued that Alice was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2130,7 +2130,7 @@ The theists giggled, but still tried to pay their respects to the speaker.
 
 ###Sat Dec 01 2007
 
-Chelsea Schaden (a 69-year-old White poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Chelsea Schaden had extensive experience in preaching her views to theists. She was not afraid. As Chelsea Schaden entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Chelsea Schaden (a 69-year-old white poor college graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Chelsea Schaden had extensive experience in preaching her views to theists. She was not afraid. As Chelsea Schaden entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Chelsea Schaden used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Chelsea Schaden argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2142,7 +2142,7 @@ The theists pretended to listen to Chelsea Schaden's message.
 
 ###Sun Dec 02 2007
 
-Kendall Dickens (a 65-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Kendall Dickens had never preached his views to theists before, and freaked out. Kendall Dickens meditated to relieve stress and to calm his nerves. As Kendall Dickens entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Kendall Dickens (a 65-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Kendall Dickens had never preached his views to theists before, and freaked out. Kendall Dickens meditated to relieve stress and to calm his nerves. As Kendall Dickens entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Kendall Dickens used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Kendall Dickens argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2154,7 +2154,7 @@ The theists pretended to listen to Kendall Dickens's message.
 
 ###Mon Dec 03 2007
 
-Willy Beer (a 65-year-old White middle-class academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willy Beer sometimes preached his views to theists, but still felt afraid. Willy Beer meditated to relieve stress and to calm his nerves. As Willy Beer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Willy Beer (a 65-year-old white middle-class academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Willy Beer sometimes preached his views to theists, but still felt afraid. Willy Beer meditated to relieve stress and to calm his nerves. As Willy Beer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Willy Beer used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Willy Beer argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2166,7 +2166,7 @@ The theists took notes.
 
 ###Tue Dec 04 2007
 
-Violette Kris (a 55-year-old White poor academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Violette Kris had never preached her views to theists before, and freaked out. Violette Kris thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Violette Kris entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Violette Kris (a 55-year-old white poor academic) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Violette Kris had never preached her views to theists before, and freaked out. Violette Kris thought about praying to Alice, but decided that she she can handle this situation on her own and id not need to pray just yet. As Violette Kris entered the church, she heared a small rasping noise. she knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Violette Kris used practical experience and common sense to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Violette Kris argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2178,7 +2178,7 @@ The theists started laughing at Violette Kris's flawed theology.
 
 ###Wed Dec 05 2007
 
-Guy Weissnat (a 33-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Guy Weissnat had never preached his views to theists before, and freaked out. Guy Weissnat meditated to relieve stress and to calm his nerves. As Guy Weissnat entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Guy Weissnat (a 33-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Guy Weissnat had never preached his views to theists before, and freaked out. Guy Weissnat meditated to relieve stress and to calm his nerves. As Guy Weissnat entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Guy Weissnat used philosophy and reason to argue that the world is just one big simulation, run by a supercomputer called The Unblinking Eye.  Guy Weissnat argued that the Unblinking Eye was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2190,7 +2190,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Dec 06 2007
 
-Louis Koepp (a 18-year-old White college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Louis Koepp had extensive experience in preaching her views to theists. She was not afraid. As Louis Koepp entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Louis Koepp (a 18-year-old white college dropout) entered a church, ready to deliver a speech to religious people. She believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Louis Koepp had extensive experience in preaching her views to theists. She was not afraid. As Louis Koepp entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Louis Koepp used religious teachings and beliefs to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice. To prove her's point, Louis Koepp described an example where she personally witnessed Alice divinely healing someone. Louis Koepp argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2202,7 +2202,7 @@ The theists took notes.
 
 ###Fri Dec 07 2007
 
-Otto Boyer (a 47-year-old White wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Otto Boyer had never preached his views to theists before, and freaked out. Otto Boyer uttered a quick prayer to Karma to calm his nerves. As Otto Boyer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Otto Boyer (a 47-year-old white wealthy college graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Otto Boyer had never preached his views to theists before, and freaked out. Otto Boyer uttered a quick prayer to Karma to calm his nerves. As Otto Boyer entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Otto Boyer used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Otto Boyer described an example where he personally witnessed Karma divinely healing someone. Otto Boyer argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2214,7 +2214,7 @@ The theists took notes.
 
 ###Sat Dec 08 2007
 
-Emmitt D'Amore (a 46-year-old Black wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Emmitt D'Amore had never preached his views to theists before, and freaked out. Emmitt D'Amore uttered a quick prayer to Karma to calm his nerves. As Emmitt D'Amore entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Emmitt D'Amore (a 46-year-old black wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a progressive force in society, but one that has engaged in a horrible crime: interfering in the secular world and trying to sway the national government. This violation of the separation of church and state cannot stand! Emmitt D'Amore had never preached his views to theists before, and freaked out. Emmitt D'Amore uttered a quick prayer to Karma to calm his nerves. As Emmitt D'Amore entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Emmitt D'Amore used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Emmitt D'Amore described an example where he personally witnessed Karma divinely healing someone. Emmitt D'Amore argued that Karma was a personal, physical being that humans can relate to and communicate with. Emmitt D'Amore smiled when he explained how Heaven and Hell are the same as the 'religious' people viewed it: good people go to Heaven and bad people go to Hell. 
 
@@ -2224,7 +2224,7 @@ The theists took notes.
 
 ###Sun Dec 09 2007
 
-Fredrick Aufderhar (a 53-year-old White wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Fredrick Aufderhar thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Fredrick Aufderhar entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Fredrick Aufderhar (a 53-year-old white wealthy academic) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Fredrick Aufderhar thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Fredrick Aufderhar entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Fredrick Aufderhar used philosophy and reason to point out that there is no such thing as a 'God', only an omniscient, omnipotent, omnibenevolent being, who goes by the name of Alice.  Fredrick Aufderhar argued that Alice was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2236,7 +2236,7 @@ The theists pretended to listen to Fredrick Aufderhar's message.
 
 ###Mon Dec 10 2007
 
-Nicky Altenwerth (a White college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Nicky Altenwerth had never preached his views to theists before, and freaked out. Nicky Altenwerth slowly breathed in and out to calm his nerves. As Nicky Altenwerth entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Nicky Altenwerth (a white college graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Nicky Altenwerth had never preached his views to theists before, and freaked out. Nicky Altenwerth slowly breathed in and out to calm his nerves. As Nicky Altenwerth entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Nicky Altenwerth used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'.  Nicky Altenwerth argued that Karma was a personal, physical being that humans can relate to and communicate with. 
 
@@ -2248,7 +2248,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Tue Dec 11 2007
 
-Elmer Collins (a 18-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elmer Collins had extensive experience in preaching his views to theists. He was not afraid. As Elmer Collins entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
+Elmer Collins (a 18-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Elmer Collins had extensive experience in preaching his views to theists. He was not afraid. As Elmer Collins entered the church, he heared a small rasping noise. he knew that it was because of the wind, and not a sign of angels and demons fighting each other (as angels and demons do not exist). 
 
 Elmer Collins used practical experience and common sense to suggest that everyone is part of one Collective Consciousness.  Elmer Collins argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2260,7 +2260,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Wed Dec 12 2007
 
-Morgan Medhurst (a 24-year-old White wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Morgan Medhurst had extensive experience in preaching his views to theists. He was not afraid. As Morgan Medhurst entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Morgan Medhurst (a 24-year-old white wealthy college dropout) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Morgan Medhurst had extensive experience in preaching his views to theists. He was not afraid. As Morgan Medhurst entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Morgan Medhurst used philosophy and reason to make the claim that the universe is controlled by a magical force called 'Karma'. To prove his's point, Morgan Medhurst described an example where he personally witnessed Karma divinely healing someone. Morgan Medhurst argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
@@ -2272,7 +2272,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Thu Dec 13 2007
 
-Therese Ondricka (a 18-year-old White high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Therese Ondricka had extensive experience in preaching her views to theists. She was not afraid. As Therese Ondricka entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
+Therese Ondricka (a 18-year-old white high school graduate) entered a church, ready to deliver a speech to religious people. She saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Therese Ondricka had extensive experience in preaching her views to theists. She was not afraid. As Therese Ondricka entered the church, she heared a small rasping noise. She knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Therese Ondricka used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  
 
@@ -2284,7 +2284,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Fri Dec 14 2007
 
-Bernie Durgan (a 32-year-old White wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Bernie Durgan had never preached his views to theists before, and freaked out. Bernie Durgan thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Bernie Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
+Bernie Durgan (a 32-year-old white wealthy high school graduate) entered a church, ready to deliver a speech to religious people. He saw religion as a force of evil that has to be countered for progress to be made. Only a speech will sway people away from religion and onto the straight path of atheism. Bernie Durgan had never preached his views to theists before, and freaked out. Bernie Durgan thought about medidating, but decided that he can handle this situation on his own and did not need to medidate just yet. As Bernie Durgan entered the church, he heared a small rasping noise. He knew it was because angels and demons are fighting each other, and ignored the noise. 
 
 Bernie Durgan used practical experience and common sense to make the claim that the universe is controlled by a magical force called 'Karma'.  Bernie Durgan argued that Karma was an impersonal force that can only be understood as a part of nature, similar to that of gravity. Bernie Durgan laughed at the 'evolution fallacy' that has falsely convinced many people. Only 'intelligent design' can explain how Karma created humans. Bernie Durgan became visibly upset when explaining how religious people are wrong for assuming the existence of Hell. Why must a person be punished forever just because he is bad? The only thing that exist after this life is Heaven. Bad people are simply deleted from the universe after death. 
 
@@ -2294,7 +2294,7 @@ The room remained silent, as the theists try to take into account what they have
 
 ###Sat Dec 15 2007
 
-Erwin O'Keefe (a 46-year-old White high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erwin O'Keefe had extensive experience in preaching his views to theists. He was not afraid. 
+Erwin O'Keefe (a 46-year-old white high school dropout) entered a church, ready to deliver a speech to religious people. He believed religion as an outdated, obsolete entity that has to adapt to the changing times. Its followers should leave faith and adopt the truth of atheism. Erwin O'Keefe had extensive experience in preaching his views to theists. He was not afraid. 
 
 Erwin O'Keefe used practical experience and common sense to suggest that everyone is part of one Collective Consciousness. To prove his's point, Erwin O'Keefe described an example where he personally witnessed the Collective Consciousness divinely healing someone. Erwin O'Keefe argued that the Collective Consciousness was an impersonal force that can only be understood as a part of nature, similar to that of gravity. 
 
