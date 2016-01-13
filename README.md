@@ -5,8 +5,10 @@ You may read the final novel [here](atheists.md). Each section of the novel talk
 
 # Documentation
 -To run the program, type
-```bundle install
+```bash
+bundle install
 ruby runner.rb
+```
 
 The program will generate a file ("atheists.md"). You can generate a different novel by changing the RNG seed in runner.rb.
 
