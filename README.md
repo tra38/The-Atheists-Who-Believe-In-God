@@ -12,9 +12,9 @@ ruby runner.rb
 
 The program will generate a file ("atheists.md"). You can generate a different novel by changing the RNG seed in runner.rb.
 
--evaluate_data.rb is in charge of converting the survey data into text and categories (turning machine-readable data into human-readable data).
--speech_template.rb then assembles the human-readable data into sentences previously written by me. These sentences are then "joined" together into paragraphs. While speech_template.rb only generate stories based on a single template/structure, it should not be hard to create different templates and have the computer choose between them.
--names.rb generates fake names, based on whether the atheist claims to be male and female.
+- evaluate_data.rb is in charge of converting the survey data into text and categories (turning machine-readable data into human-readable data).
+- speech_template.rb then assembles the human-readable data into sentences previously written by me. These sentences are then "joined" together into paragraphs. While speech_template.rb only generate stories based on a single template/structure, it should not be hard to create different templates and have the computer choose between them.
+- names.rb generates fake names, based on whether the atheist claims to be male and female.
 
 The only data that is fake (other than the randomly-generated names by names.rb) is the name and details of the "fake faiths" that the atheists believe in. The "fake faith" is randomly determined in runner.rb.
 
